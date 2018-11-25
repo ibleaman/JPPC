@@ -3,8 +3,6 @@ title: About
 layout: default
 ---
 
-# About the JPPC
-
 The Jewish People's Philharmonic Chorus (JPPC) is part of the modern Yiddish renaissance. Around forty members strong, singers in this multigenerational ensemble hold a range of occupations, from students to retirees. Some speak or are learning Yiddish; others don’t know the language at all. But each member is committed to strengthening Yiddish as a living language and is drawn by the beautiful Yiddish choral music we learn.
 
 The JPPC is building a century-spanning repertoire — oratorios and operettas, labor anthems, folksongs, and classic popular tunes — all in Yiddish. We have commissioned and premiered new Yiddish choral works by composers Helen Medwedeff Greenberg *z"l*, Robert Ross, Josh Waletzky, Mark Zuckerman, and by our conductor, Binyumen Schaechter.
