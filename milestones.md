@@ -8,14 +8,14 @@ layout: default
 ![](img/1923.jpg)
 <p style="text-align:center;font-weight:bold;">The JPPC, 1923</p>
 
-**1922** - The Freiheit Gezang Farein (FGF) is founded by conductor/composer Lazar Weiner on New York's Lower East Side  
+**1922** - The *Freiheit Gezang Farein* (FGF) is founded by conductor/composer Lazar Weiner on New York's Lower East Side  
 **1923** - Sat., Feb. 23, Carnegie Hall - FGF gives its first concert, including a song that was to be a staple of its repertoire for some 20 years: "Di Internatsionale"  
 **1925** - The Jewish Workers Music Alliance (Der yidish-muzikalisher arbeter-farband) is founded as funding organization for many Yiddish choruses. During its 60-year existence, the Alliance publishes 7-8 collections of Yiddish choral works and solo works (first under the title "Mit gezang tsum kamf", then "Gezang un kamf"), edited by FGF conductors Jacob Schaefer and Max Helfman  
 **1926** - Feb. 20, Mecca Temple, NYC - The FGF, conducted by Weiner, debuts Jacob Schaefer's oratorio, Tsvey Brider, the first time a Yiddish chorus performed with an orchestra  
 **1926-36** - Jacob Schaefer conducts the FGF, at its height a 300-singer chorus  
 **1920s** - Choruses of the International Workers Order / IWO ("ordn-khorn") spring up all over the city (Washington Heights, Brighton, Brownsville, Coney Island, Kings Highway, Jamaica, two in the Bronx, the "Downtown" and the "Yugnt" branch), the tri-state area (Newark, Passaic, Paterson, Farmer's Chorus and Connecticut) and the country (Boston, Chicago, Cleveland, Detroit, Miami, Philadelphia, Washington DC, Bay Area, Los Angeles, Petaluma). There were 30 in all, nationwide  
-**1932** - "Mit gezang tsum kamf - Songs for Voice and Piano" published by the International Workers Order, compiled and arranged by Jacob Schaefer  
-**1934** - "Gezang un kamf", the 2nd in the series, now with a new name, and now published by Der yidisher muzikalisher arbeter-farband / IMAF (106 E 14 St, NYC), complied and edited by Jacob Schaefer  
+**1932** - "*Mit gezang tsum kamf* - Songs for Voice and Piano" published by the International Workers Order, compiled and arranged by Jacob Schaefer  
+**1934** - *"Gezang un kamf",* the 2nd in the series, now with a new name, and now published by Der yidisher muzikalisher arbeter-farband / IMAF (106 E 14 St, NYC), complied and edited by Jacob Schaefer  
 **1935-40** - "Gezang un kamf", issues 3 through 8, are published, one each year, edited by Schaefer through 1936, Helfman from 1938-1940, and a combination of the two for the issue that was published in 1937  
 **1936** - Schaefer passes away suddenly at age forty-eight  
 **1936-48** - Max Helfman conducts the FGF  
