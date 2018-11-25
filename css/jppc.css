@@ -95,14 +95,14 @@ img::-moz-selection {
 
 #mainNav {
   position: absolute;
-  border-bottom: 1px solid #e9ecef;
-  background-color: white;
+  border-bottom: 1px transparent;
+  background-color: transparent;
   font-family: 'Open Sans', 'Helvetica Neue', Helvetica, Arial, sans-serif;
 }
 
 #mainNav .navbar-brand {
   font-weight: 800;
-  color: #343a40;
+  color: white;
 }
 
 #mainNav .navbar-toggler {
@@ -110,7 +110,7 @@ img::-moz-selection {
   font-weight: 800;
   padding: 13px;
   text-transform: uppercase;
-  color: #343a40;
+  color: white;
 }
 
 #mainNav .navbar-nav > li.nav-item > a {
@@ -118,6 +118,7 @@ img::-moz-selection {
   font-weight: 800;
   letter-spacing: 1px;
   text-transform: uppercase;
+  color: white;
 }
 
 @media only screen and (min-width: 992px) {
