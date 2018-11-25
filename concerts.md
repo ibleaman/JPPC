@@ -3,11 +3,11 @@ title: Upcoming Performances
 layout: center
 ---
 
-# {{ page.title }}
+# Upcoming Performances
 
 _____
 
-SECOND ENCORE PERFORMANCE
+*SECOND ENCORE PERFORMANCE*
 
 ### To Everything There Is a Season:
 ### The Year in Yiddish Song
