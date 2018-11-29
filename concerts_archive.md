@@ -129,11 +129,11 @@ _____
 
 *PRIVATE EVENTS*
 
-**Chanukah Concert, Reform Temple of Forest Hills, Forest Hills, NY, December, 2018**
+**Reform Temple of Forest Hills, Forest Hills, NY**
+	Chanukah Concert, December, 2018
 
-
-**Holiday Concert, Sunnyside Reformed Church, Sunnyside, NY, December, 2018**
-
+**Sunnyside Reformed Church, Sunnyside, NY** 
+	Holiday Concert, December, 2018
 
 **Old Westbury Golf & Country Club, Old Westbury, NY**  
 	Havdalah bar-mitzvah service, April 2015, November 2013  
