@@ -33,4 +33,4 @@ _____
 
 # Member area
 
-Current members: [Click here](https://sites.google.com/view/jppccurrentmembers) to visit the members' area for sheet music, lyrics, and recordings. You will need to sign in using your Google credentials. Please email Binyumen if you are a current member and your Google account does not have access.
+Current members: [Click here](https://sites.google.com/view/jppccurrentmembers) to visit the members' area.
