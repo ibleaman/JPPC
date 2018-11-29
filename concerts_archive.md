@@ -129,10 +129,10 @@ _____
 
 *PRIVATE EVENTS*
 
-**Reform Temple of Forest Hills, Forest Hills, NY**
+**Reform Temple of Forest Hills, Forest Hills, NY**  
 	Chanukah Concert, December, 2018
 
-**Sunnyside Reformed Church, Sunnyside, NY** 
+**Sunnyside Reformed Church, Sunnyside, NY**  
 	Holiday Concert, December, 2018
 
 **Old Westbury Golf & Country Club, Old Westbury, NY**  
