@@ -31,9 +31,7 @@ Bronx, NY
 _____  
 _____
 
-<a name="save-the-date">**SAVE THE DATE!**</a>
-
-OUR SPRING 2019 GALA Concert
+<a name="save-the-date">**OUR SPRING 2019 GALA CONCERT**</a>
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
@@ -42,8 +40,7 @@ OUR SPRING 2019 GALA Concert
 
 A perfect Father's Day gift!
 
-Songs about...
-
+Songs about...  
 flirtation ~ nostalgia ~ passion ~ seduction  
 parental love  
 love of ideas ~ love of activities ~ love of objects
