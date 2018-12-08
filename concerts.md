@@ -6,9 +6,12 @@ layout: center
 
 # Upcoming Performances
 
+[Sunday, December 16, 2018](#sholem-aleichem-center)  
+[Sunday, June 16, 2019](#save-the-date)
+
 _____
 
-*SECOND ENCORE PERFORMANCE*
+<a name="sholem-aleichem-center">*SECOND ENCORE PERFORMANCE*</a>
 
 ### To Everything There Is a Season:
 ### The Year in Yiddish Song
@@ -25,9 +28,10 @@ Bronx, NY
 -- beautiful 48-page printed program with lyrics and translations available for purchase --  
 -- [information@thejppc.org](mailto:information@thejppc.org) --
 
+_____  
 _____
 
-*SAVE THE DATE!*
+<a name="save-the-date">**SAVE THE DATE!**</a>
 
 OUR SPRING 2019 GALA Concert
 
@@ -59,6 +63,6 @@ $25 for students with ID
 
 _____
 
-## Archive
+# Archive
 
 [Click here](concerts_archive.html) to find information about our major past performances.
