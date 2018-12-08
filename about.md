@@ -6,7 +6,7 @@ layout: default
 
 # The Chorus
 
-![alt text](img/2010.jpg "The JPPC, 2010"){: .rounded .mx-auto .d-block }
+![The JPPC](img/2010.jpg "The JPPC, 2010"){: .rounded .mx-auto .d-block }
 
 The **Jewish People's Philharmonic Chorus** (JPPC) is a New York City-based audition chorus dedicated to preserving and fostering a love of Yiddish music. In their unique mission, the JPPC performs strictly in Yiddish, rediscovering and reinterpreting traditional works from the Eastern European shtetl, as well as new songs with a contemporary sound.  Interestingly, most of the Chorus at this point does not understand Yiddish.  The texts on the sheet music are all written with English letters, the singers are all provided with word-for-word translations, and mp3s are provided to help with the pronunciation (as well as the music, for those who aren't as fluid at reading music).  When the JPPC performs, English translations are always provided.  At this point, much of the JPPC's audience is younger;  and the combination of the translations given, with the JPPC's manner of performing leaves the Yiddish-challenged in the audience feeling like they understood everything.
 
@@ -22,7 +22,7 @@ For their 2012 gala concert entitled *Bridging Two Worlds: A Yiddish Musical Jou
 
 # The Conductor
 
-![alt text](img/binyumen.jpg "Binyumen Schaechter"){: .rounded .mx-auto .d-block }
+![Binyumen Schaechter](img/binyumen_small.jpg "Binyumen Schaechter"){: .rounded .mx-auto .d-block height="350px" }
 
 **Binyumen Schaechter** is an award-winning composer of musicals and other songs which have been performed on five continents, with his music represented off-Broadway in *aked Boys Singing* (one of the longest-running shows in off-Broadway history), *Pets!* (Dramatic Publishing), *That's Life!* (Outer Critics Circle nomination), *Too Jewish?* (nominated: Drama Desk, Outer Critics Circle Awards) and *Double Identity*. His most recent musical, *Dinner at Eight*, won BMI's Jerry Bock Award for Outstanding Achievement in Musical Theatre. His music has been performed by Tovah Feldshuh and Andrea Marcovicci and has been recorded on ten CDs, including [*It Helps to Sing About It: Songs of Ben Schaechter and Dan Kael*](http://www.amazon.com/Helps-Sing-About-Ben-Schaechter/dp/B0000DEOIH).
 
