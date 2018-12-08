@@ -34,4 +34,4 @@ _____
 
 ## Member area
 
-Current members: [Click here](https://sites.google.com/view/jppccurrentmembers) to visit the members' area.
+Current members: [Click here](https://www.thejppc.org/member-portal) to visit the members' area.
