@@ -1,6 +1,7 @@
 ---
 title: דער ייִדישער פֿילהאַרמאָנישער פֿאָלקסכאָר
-layout: yiddish
+lang: yiddish
+layout: default
 ---
 
 # טיטל

@@ -1,5 +1,6 @@
 ---
 title: Past Performances
+lang: english
 layout: default
 ---
 

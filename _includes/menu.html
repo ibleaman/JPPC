@@ -1,6 +1,18 @@
 <nav class="navbar fixed-top navbar-expand-md navbar-light" id="mainNav">
   <div class="container">
-    <a class="navbar-brand" href="index.html">The JPPC</a>
+    <ul class="navbar-nav ml-auto">
+      <li class="nav-item ml-auto">
+        <a class="nav-link" href="index.html">
+          {% if page.title != "Index" %}
+            {% if page.lang == "yiddish" %}
+              אַהײם
+            {% else %}
+              Home
+            {% endif %}
+          {% endif %}
+        </a>
+      </li>
+    </ul>
     <button class="navbar-toggler navbar-toggler-right" type="button" data-toggle="collapse" data-target="#navbarResponsive" aria-controls="navbarResponsive" aria-expanded="false" aria-label="Toggle navigation">
       Menu
       <i class="fas fa-bars"></i>
@@ -8,22 +20,49 @@
     <div class="collapse navbar-collapse" id="navbarResponsive">
       <ul class="navbar-nav ml-auto">
         <li class="nav-item ml-auto">
-          <a class="nav-link" href="index.html">Home</a>
+          <a class="nav-link" href="about.html">
+            {% if page.lang == "yiddish" %}
+              װעגן אונדז
+            {% else %}
+              About
+            {% endif %}
+          </a>
         </li>
         <li class="nav-item ml-auto">
-          <a class="nav-link" href="about.html">About</a>
+          <a class="nav-link" href="auditions.html">
+            {% if page.lang == "yiddish" %}
+              פּראָבעס
+            {% else %}
+              Auditions
+            {% endif %}
+          </a>
         </li>
         <li class="nav-item ml-auto">
-          <a class="nav-link" href="auditions.html">Auditions</a>
+          <a class="nav-link" href="concerts.html">
+            {% if page.lang == "yiddish" %}
+              קאָנצערטן
+            {% else %}
+              Concerts
+            {% endif %}
+          </a>
         </li>
         <li class="nav-item ml-auto">
-          <a class="nav-link" href="concerts.html">Concerts</a>
+          <a class="nav-link" href="media.html">
+            {% if page.lang == "yiddish" %}
+              מעדיע
+            {% else %}
+              Media
+            {% endif %}
+          </a>
         </li>
         <li class="nav-item ml-auto">
-          <a class="nav-link" href="media.html">Media</a>
-        </li>
-        <li class="nav-item ml-auto">
-          <a class="nav-link" href="members.html">Members</a>
+          <a class="nav-link" href="members.html">
+            {% if page.lang == "yiddish" %}
+              זינגערס
+            {% else %}
+              Members
+            {% endif %}
+          </a>
         </li>
       </ul>
     </div>

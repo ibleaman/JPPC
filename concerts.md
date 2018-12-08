@@ -1,5 +1,6 @@
 ---
 title: Upcoming Performances
+lang: english
 layout: center
 ---
 

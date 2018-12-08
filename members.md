@@ -1,5 +1,6 @@
 ---
 title: Members
+lang: english
 layout: default
 ---
 
@@ -50,5 +51,3 @@ Lori-Ann Wynter
 Claire Zuckerman  
 
 [Click here](alumni.html) for a list of former members.
-
-

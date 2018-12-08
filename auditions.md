@@ -1,5 +1,6 @@
 ---
 title: Auditions
+lang: english
 layout: default
 ---
 

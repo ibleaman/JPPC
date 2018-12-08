@@ -1,5 +1,6 @@
 ---
-title: About
+title: Index
+lang: english
 layout: default
 ---
 

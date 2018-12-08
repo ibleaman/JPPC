@@ -1,5 +1,6 @@
 ---
 title: Biographies
+lang: english
 layout: default
 ---
 

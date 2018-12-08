@@ -1,5 +1,6 @@
 ---
 title: Alumni
+lang: english
 layout: default
 ---
 
