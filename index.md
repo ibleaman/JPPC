@@ -12,19 +12,19 @@ We share the rich legacy of Yiddish song by performing annually each spring at S
 
 The Chorus often performs with soloists, including  [*Di Shekhter-tekhter*](http://yiddishsisters.com/) (The Schaechter Sisters), a one-of-a-kind sister duo that has been delighting audiences all over the world with their all-Yiddish programs since 2008.
 
-# Catch up on some recent JPPC press!
+## Catch up on some recent JPPC press!
 
 [The Jewish Week](http://www.thejewishweek.com/blogs/well-versed/hitting-yiddish-high-notes)  
 [Tablet Magazine](http://www.tabletmag.com/arts-and-culture/music/32368/in-tune/)  
 [New Jersey Jewish Standard](http://www.jstandard.com/index.php/content/item/18807/)  
 
-# We are here to sing for you!
+## We are here to sing for you!
 
 The JPPC is always looking for new audiences to which we can reveal the power and beauty of Yiddish choral music. If you would like your group to have this moving experience, we are ready to help plan a program for you. We can provide either an entire concert or perform several numbers to enhance a commemoration or special event.
 
 For availability and booking arrangements, please email the JPPC at [information@thejppc.org](mailto:information@thejppc.org). We look forward to hearing from you!
 
-# Why Yiddish?
+## Why Yiddish?
 
 Yiddish has been the everyday voice of the Ashkenazic Jewish people for around one thousand years. Mixing Hebrew, High German, Slavic, and Romance languages, Yiddish was spoken in Jewish daily life in Central and Eastern Europe from medieval times. In the 19th century, the language reached its "Golden Age" in the literature of such internationally renowned writers as Sholom Aleichem, Y. L. Peretz, Itzik Manger, and Isaac Bashevis Singer. Throughout that time, many Yiddish speakers also emigrated to cities and towns in North and South America, Africa, Australia, and Asia. In New York City, Yiddish was the *mame-loshn* or "mother tongue" that Jewish immigrants spoke with their children, heard in Second Avenue theatres, and read in newspapers like the *Forverts* (Forward) and the *Frayhayt*.
 
@@ -32,6 +32,6 @@ Although Yiddish was almost silenced in the 20th century by the Holocaust and as
 
 _____
 
-# Member area
+## Member area
 
 Current members: [Click here](https://sites.google.com/view/jppccurrentmembers) to visit the members' area.

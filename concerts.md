@@ -31,7 +31,7 @@ Bronx, NY
 _____  
 _____
 
-<a name="save-the-date">**OUR SPRING 2019 GALA CONCERT**</a>
+<a name="save-the-date">*OUR SPRING 2019 GALA CONCERT*</a>
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
