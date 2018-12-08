@@ -181,8 +181,15 @@ img::-moz-selection {
   }
 }
 
+.lg-view {
+   display: none;
+}
+.sm-view {
+   display: inline-block;
+}
+
 header.masthead {
-  margin-bottom: 50px;
+  margin-bottom: 25px;
   background: no-repeat center center;
   background-color: #868e96;
   background-attachment: scroll;
@@ -204,8 +211,17 @@ header.masthead .overlay {
 header.masthead .page-heading,
 header.masthead .post-heading,
 header.masthead .site-heading {
-  padding: 50px 0 50px;
+  padding: 70px 0 70px;
   color: white;
+}
+
+@media only screen and (min-width: 520px) {
+  .lg-view{
+   display: inline-block;
+  }
+  .sm-view{
+     display: none;
+  }
 }
 
 @media only screen and (min-width: 768px) {
