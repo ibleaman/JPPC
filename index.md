@@ -30,8 +30,3 @@ Yiddish has been the everyday voice of the Ashkenazic Jewish people for around o
 
 Although Yiddish was almost silenced in the 20th century by the Holocaust and assimilation, this rich, vibrant voice of Jewish history and culture is growing stronger day by day. Written in Hebrew script, Yiddish today is a living language, pronounced with great expression and musical cadence. Almost a million people around the globe speak Yiddish – 250,000 in the United States and 60,000 in New York State alone. Today more than 60 universities worldwide offer classes in Yiddish, and New York City itself boasts a Yiddish degree program at New York University, as well as courses at the YIVO Institute for Jewish Research, Jewish Theological Seminary, and the Workmen's Circle. The past twenty years has seen a rebirth of interest in Yiddish music, literature, and arts, and in Yiddish itself, a vital symbol of Jewish identity which once approached extinction.
 
-_____
-
-## Member area
-
-Current members: [Click here](https://www.thejppc.org/member-portal) to visit the members' area.
