@@ -49,11 +49,11 @@ Nancy Dubin
 Lee Dubinett  
 Faith Dudley  
 Nancy Dunetz  
-Jenny Eckers  
+Jenny (Mitnick) Eckers  
 Cynthia Ehrenkrantz  
 Philip Eisenberg  
 Gedaliah Ejdelman  
-Menachem Ejdelman  
+Menachem (Yankl) Ejdelman  
 Naftali Ejdelman  
 Jane Ellis  
 Jen Epstein  
@@ -177,7 +177,7 @@ Herb Schonhaut
 E. Zoe Schutzman  
 Jessica Schutzman  
 Naomi Schwarzbaum  
-Miryem-Khaye Seigel  
+Amanda (Miryem-Khaye) Seigel  
 Cind Senensieb  
 David Shapiro  
 Gedalye Shapiro  
