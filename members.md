@@ -12,8 +12,6 @@ Nan Bases
 Muriel Beckerman  
 Nancy Braman  
 Lynne Cassouto  
-Brian Conley  
-Cynthia Ehrenkrantz  
 Alisa Eilenberg  
 Avi Eisen  
 BethAnn Freed  
@@ -22,11 +20,9 @@ Vivian Gelber
 Larry Gillig  
 Susan Goldberg  
 Larry Goller  
-Shoshana Greenberg  
 Elaine Kallenbach  
 Brian Kalver  
 Larry Kay  
-Marc Crawford Leavitt  
 Catherine Lewi  
 Stuart Malkin  
 Brian Mayer  
@@ -35,7 +31,6 @@ Solomon Miler
 Leah Montesinos  
 Esther Rood  
 Linda Rosengart  
-Andy Roth  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
 Paulette Schneider  
@@ -44,7 +39,6 @@ Tracy Sivitz
 Gella Solomon-Puertas  
 Sarah Spangenberg  
 Shelly Wakefield  
-Dov Weinstock  
 Lori Weisenberg-Catalano  
 Robert Winograd  
 Lori-Ann Wynter  
