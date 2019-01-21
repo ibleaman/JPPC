@@ -12,11 +12,9 @@ Max Alper
 Marilyn Apelson  
 John Authers  
 Noah Barrera  
-Martin Bear  
-Moshe Bear  
-Dov Berger  
-Sholem Berger  
-Zackary Berger  
+Martin (Moshe) Bear  
+Dov Berger   
+Zackary (Sholem) Berger  
 Edeet Bergman  
 Dudle Bernstein, z"l  
 Shirley Bernstein  
@@ -29,8 +27,7 @@ Miriam Borden
 Heidi Bratt  
 Judith Bro Pinhasik  
 Sabina Brukner  
-Alec Burko  
-Leyzer Burko  
+Alec (Leyzer) Burko  
 Marc Caplan  
 Aaron Catz  
 Daniel Checkman  
@@ -87,7 +84,7 @@ Rachel Gordon
 Susan Gordon  
 Pearl Gluck  
 Sophie Gluck  
-Pearl Graiver  
+Pearl Graiver, z"l  
 Seymour Graiver, z"l  
 Rebecca Green  
 Jeanette Greenwald, z"l  
@@ -103,7 +100,7 @@ Bill Hindin
 Michael Ingram  
 Linda Jacknow  
 Marisa James  
-Arthur Kahn, z"l  
+Arthur (Avram) Kahn, z"l  
 Eliott Kahn  
 Elaine Kallenbach  
 Ruth Katz  
@@ -222,7 +219,7 @@ Jennifer Young
 Melanie Yukov  
 Michelle Zalph  
 Rachel Zerin  
-Sam Zerin  
+Sam (Shmuel) Zerin  
 Yael Zickel  
 Mimi Zucker  
 Mark Zuckerman  
