@@ -29,7 +29,7 @@ Brian Mayer
 Lisa Rochman Mechanick  
 Solomon Miler  
 Leah Montesinos  
-Esther Rood  
+Karen Esther Rood  
 Linda Rosengart  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
