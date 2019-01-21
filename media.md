@@ -17,7 +17,7 @@ Be sure to [follow us on Facebook](https://www.facebook.com/thejppc/)!
 
 <img src="img/zingt_cover.jpg" alt="Zingt, album cover" width="50%"/>{: .rounded .mx-auto .d-block }
 
-This CD has been a long time coming. Several albums had been recorded by the JPPC through 1967, but none since then. In 2004, our conductor, Binyumen Schaechter, decided to search the JPPC's current and past archives to select some of the best songs for a CD that would showcase the range of musical styles, moods and themes in our repertoire. We hope this selection of choral gems in "Zingt!" - most of which have not been recorded in a choral version before - will delight and inspire you as it has us.
+Released in 2006, this CD was a long time coming. Several albums had been recorded by the JPPC through 1967, but none after then. This CD showcases the range of musical styles, moods and themes in our repertoire. We hope this selection of choral gems in "Zingt!" - most of which have not been recorded in a choral version before - will delight and inspire you as it has our audiences since its release.
 
 Yiddish, Latin transcription, and full English translation is included with each CD.  
 [Click to hear a sample!](attachments/vaserl_clip.mp3)
