@@ -17,7 +17,7 @@ Avi Eisen
 BethAnn Freed  
 Wendy Ganz  
 Vivian Gelber  
-Larry Gillig  
+Larry (Leyzer) Gillig  
 Susan Goldberg  
 Larry Goller  
 Elaine Kallenbach  
@@ -35,7 +35,7 @@ Gitl Schaechter-Viswanath
 Janet Scharf  
 Paulette Schneider  
 David Simon  
-Tracy Sivitz  
+Tracy (Temma) Sivitz  
 Gella Solomon-Puertas  
 Sarah Spangenberg  
 Shelly Wakefield  
