@@ -50,6 +50,7 @@ Lee Dubinett
 Faith Dudley  
 Nancy Dunetz  
 Jenny Eckers  
+Cynthia Ehrenkrantz  
 Philip Eisenberg  
 Gedaliah Ejdelman  
 Menachem Ejdelman  
@@ -87,6 +88,7 @@ Sophie Gluck
 Pearl Graiver, z"l  
 Seymour Graiver, z"l  
 Rebecca Green  
+Shoshana Greenberg  
 Jeanette Greenwald, z"l  
 Jack Grossman  
 David Grotell  
