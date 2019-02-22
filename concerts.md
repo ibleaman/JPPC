@@ -28,7 +28,7 @@ Merkin Concert Hall
 129 West 67th Street  
 New York City
 
-TICKETS ON SALE IN EARLY MARCH  
+TICKETS NOW ON SALE!  CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-flavors-of-love-a-musical-celebration/)  
 $40  
 $30 for groups of at least 10  
 $25 for students with ID  
