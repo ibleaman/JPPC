@@ -6,11 +6,11 @@ layout: default
 
 # Can you sing with us?
 
-If you can learn a vocal line, sing in harmony with others, read music or learn quickly from an MP3 recording, and reliably follow a conductor, you are welcome to audition for the Chorus.
+If you can learn a vocal line, sing in harmony with others, read music or learn quickly from an MP3 recording, and reliably follow a conductor, you're welcome to audition for the Chorus.
 
-Reading or speaking Yiddish is not a requirement. All of our musical texts are transliterated into English, and word-for-word translations are provided. Most of our singers learn the language "on the job" and sound like native Yiddish speakers — at least when singing — by concert time.
+Lyrics are transliterated and translated into English.  You don't need to know a lot of Yiddish, but you do need to study the translations and understand the songs.  You don't need to be a fluent Yiddish speaker, but you do need to sing with correct pronunciation and expression.  To help you learn that, we provide MP3 recordings of the spoken lyrics only.  And to help you learn the music, we provide MP3s of each voice section (soprano, alto, tenor, bass).  Most of us learn the language "on the job" and sound like native speakers by concert time-at least while we're singing!
 
-The Chorus rehearses on Monday evenings from September through early June (with the exception of Jewish holidays and some national holidays) from 7:00 to 9:30 p.m. at Opera America, 330 Seventh Avenue, between 28th and 29th streets, in Manhattan. Additional separate rehearsals for each vocal part (soprano, alto, tenor, and bass) are held several times during the year. Our first rehearsal this season was October 15, 2018, and our final rehearsal will be Thursday, June 13, 2019.
+The Chorus rehearses on Monday nights from 7:00 to 9:30 p.m. in Midtown Manhattan.  The season runs from September through early June, with days off on Jewish holidays and some national holidays.  There are two or three additional non-Monday rehearsals for each voice section.  Dates for these sectional rehearsals are determined by consensus and are required for those planning to perform at our concerts.
 
 Concert dates and locations, once confirmed, are included in the Concerts page on this website.
 
@@ -20,4 +20,4 @@ We hold auditions, by appointment only, in midtown Manhattan during August and S
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
-For more information, please email the JPPC at [information@thejppc.org](mailto:information@thejppc.org).
+For more information, please contact us at [information@thejppc.org](mailto:information@thejppc.org).
