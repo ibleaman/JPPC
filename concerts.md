@@ -13,16 +13,16 @@ _____
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
 
-*ENGLISH SUPERTITLES*
+ENCORE PERFORMANCE
 
-A perfect Father's Day gift!
+*ENGLISH SUPERTITLES*
 
 Songs about...  
 flirtation ~ nostalgia ~ passion ~ seduction  
 parental love  
 love of ideas ~ love of activities ~ love of objects
 
-**Sunday, June 16, 2019, 3:00 p.m.**
+**Sunday, September 15, 2019, 3:00 p.m.**
 
 Merkin Concert Hall  
 129 West 67th Street  
@@ -31,7 +31,6 @@ New York City
 TICKETS NOW ON SALE!  CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-flavors-of-love-a-musical-celebration/)  
 $40  
 $30 for groups of at least 10  
-$25 for students with ID  
 
 [information@thejppc.org](mailto:information@thejppc.org)
 
