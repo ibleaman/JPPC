@@ -11,7 +11,7 @@ _____
 *ENCORE PERFORMANCE OF OUR SPRING 2019 GALA CONCERT*
 
 ### Yiddish Flavors of Love:
-### A Musical Celebration
+### A Musical Celebration  
   
 ##### ENCORE PERFORMANCE
 
