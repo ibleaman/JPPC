@@ -17,7 +17,7 @@ _____
 
 Songs about...  
 flirtation ~ nostalgia ~ passion ~ seduction  
-parental love  
+~ parental love ~  
 love of ideas ~ love of activities ~ love of objects
 
 **Sunday, September 15, 2019, 3:00 p.m.**
