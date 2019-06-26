@@ -4,16 +4,14 @@ lang: english
 layout: center
 ---
 
-# Upcoming Performance
+# Upcoming Concert
   
 _____
 
-*ENCORE PERFORMANCE OF OUR SPRING 2019 GALA CONCERT*
+*ENCORE PERFORMANCE OF OUR SPRING 2019 GALA*
 
 ### Yiddish Flavors of Love:
-### A Musical Celebration  
-  
-###### ENCORE PERFORMANCE
+### A Musical Celebration
 
 *ENGLISH SUPERTITLES*
 
