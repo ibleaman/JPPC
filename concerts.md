@@ -8,7 +8,7 @@ layout: center
   
 _____
 
-*OUR SPRING 2019 GALA CONCERT*
+*ENCORE PERFORMANCE OF OUR SPRING 2019 GALA*
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
