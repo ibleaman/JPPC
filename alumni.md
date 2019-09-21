@@ -13,6 +13,7 @@ Marilyn Apelson
 John Authers  
 Noah Barrera  
 Martin (Moshe) Bear  
+Muriel Beckerman  
 Dov Berger   
 Zackary (Sholem) Berger  
 Edeet Bergman  
@@ -26,6 +27,7 @@ Sam Blesofsky
 Miriam Borden  
 Heidi Bratt  
 Judith Bro Pinhasik  
+Elana Brody  
 Sabina Brukner  
 Alec (Leyzer) Burko  
 Marc Caplan  
@@ -50,7 +52,6 @@ Lee Dubinett
 Faith Dudley  
 Nancy Dunetz  
 Jenny (Mitnick) Eckers  
-Cynthia Ehrenkrantz  
 Philip Eisenberg  
 Gedaliah Ejdelman  
 Menachem (Yankl) Ejdelman  
@@ -99,6 +100,7 @@ Gina Healy
 Ani Huebner  
 Dan Heyman  
 Bill Hindin  
+Shirley Horowitz  
 Michael Ingram  
 Linda Jacknow  
 Marisa James  
@@ -120,7 +122,6 @@ Leibele Kurtz, z"l
 Sarah Kutnowsky  
 Rachel Labovitch  
 Joshua Land  
-Marc Crawford Leavitt  
 Adi Lederman  
 Lori Leifer  
 Larry Lerner  
@@ -137,6 +138,7 @@ Talia Martz-Oberlander
 Adam Masser  
 Netalie Matalon  
 Cheryl Merzel  
+Jordana Miller  
 Libi Miransky  
 Heather Morse  
 Luisa Muhr  
@@ -156,7 +158,6 @@ Sara Raftery
 Chana Raskin  
 John Réal  
 Johanna Reissman  
-Rina Rinkewich Spielberg  
 Tina Rosenberg  
 Eve Roshevsky  
 Andy Roth  
@@ -207,7 +208,6 @@ Tobaron Waxman
 Sylvia Weinberger  
 Shirley Weiner  
 Bina Weinreich, z"l  
-Dov Weinstock  
 Janice Weintraub  
 Barbara Weiss  
 Doris Weiss  
