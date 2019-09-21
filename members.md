@@ -9,9 +9,10 @@ layout: default
 Marjory Appel  
 Pamela Baron  
 Nan Bases  
-Muriel Beckerman  
+Mary-Lynne Bird  
 Nancy Braman  
 Lynne Cassouto  
+Cynthia Ehrenkrantz  
 Alisa Eilenberg  
 Avi Eisen  
 BethAnn Freed  
@@ -20,10 +21,12 @@ Vivian Gelber
 Larry (Leyzer) Gillig  
 Susan Goldberg  
 Larry Goller  
+Richar Hoffman  
+Laurel Kallen  
 Elaine Kallenbach  
 Brian Kalver  
 Larry Kay  
-Catherine Lewi  
+Marc Crawford Leavitt  
 Stuart Malkin  
 Brian Mayer  
 Lisa Rochman Mechanick  
@@ -34,14 +37,16 @@ Linda Rosengart
 Gitl Schaechter-Viswanath  
 Janet Scharf  
 Paulette Schneider  
-David Simon  
+Dovid Simon  
 Tracy (Temma) Sivitz  
 Gella Solomon-Puertas  
 Sarah Spangenberg  
+Rina Rinkewich Spielberg  
 Shelly Wakefield  
+Dov Weinstock  
 Lori Weisenberg-Catalano  
 Robert Winograd  
-Lori-Ann Wynter  
+Lori-Ann "LA" Wynter  
 Claire Zuckerman  
 
 [Click here](alumni.html) for a list of former members.
