@@ -21,7 +21,7 @@ Vivian Gelber
 Larry (Leyzer) Gillig  
 Susan Goldberg  
 Larry Goller  
-Richar Hoffman  
+Richard Hoffman  
 Laurel Kallen  
 Elaine Kallenbach  
 Brian Kalver  
