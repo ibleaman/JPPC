@@ -8,7 +8,7 @@ layout: center
   
 _____
 
-*ENCORE PERFORMANCE OF OUR SPRING 2019 GALA*
+*SECOND ENCORE PERFORMANCE OF OUR SPRING and FALL 2019 GALAS*
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
@@ -20,13 +20,21 @@ flirtation ~ nostalgia ~ passion ~ seduction
 ~ parental love ~  
 love of ideas ~ love of activities ~ love of objects
 
-**Sunday, September 15, 2019, 3:00 p.m.**
+**Saturday, November 9, 2019, 8:00 p.m.**
+
+Shelter Rock Jewish Center  
+272 Shelter Rock Road  
+Roslyn, NY 11576
+
+*SAVE THE DATE FOR OUR OUR SPRING 2020 GALA!*
+
+**Sunday, June 14, 2020, 3:00 p.m.**
 
 Merkin Concert Hall  
 129 West 67th Street  
 New York City
 
-TICKETS NOW ON SALE!  CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-flavors-of-love/)  
+TICKETS ON SALE IN FEBRUARY 2020! 
 $40  
 $30 for groups of at least 10  
 
