@@ -7,6 +7,8 @@ layout: default
 *OUR PAST DECADE OF MAJOR CONCERTS*
 
 **"Yiddish Flavors of Love: A Musical Celebration"**  
+	Merkin Concert Hall, New York, NY, September 2019  
+	North American Jewish Choral Festival, Stamford, CT, July 2019  
 	Merkin Concert Hall, New York, NY, June 2019
 
 **"To Everything There Is a Season: The Year in Yiddish Song"**  
