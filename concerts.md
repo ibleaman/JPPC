@@ -34,7 +34,7 @@ Merkin Concert Hall
 129 West 67th Street  
 New York City
 
-TICKETS ON SALE IN FEBRUARY 2020! 
+TICKETS ON SALE IN FEBRUARY 2020!  
 $40  
 $30 for groups of at least 10  
 
