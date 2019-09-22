@@ -16,7 +16,7 @@ Concert dates and locations, once confirmed, are included in the Concerts page o
 
 # Auditions
 
-We hold auditions, by appointment only, in midtown Manhattan during August and September. You may benefit from attending one of our concerts before you audition. Please visit the Concerts page on this website for some information about our June 2019 concert.
+We hold auditions, by appointment only, in midtown Manhattan during August and September. You may benefit from attending one of our concerts before you audition. Please visit the Concerts page on this website for some information about our upcoming concerts.
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
