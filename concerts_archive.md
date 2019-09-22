@@ -59,6 +59,9 @@ _____
 
 *CONFERENCES, FESTIVALS, AND LOCAL EVENTS*
 
+**"Second Generation (2GNYC) Memorial Program"**  
+	Museum of Jewish Heritage, New York, NY, September 2019
+
 **"To Everything There Is a Season: The Year in Yiddish Song"**  
 	Sholem Aleichem Cultural Center, Bronx, NY, December 2018
 
