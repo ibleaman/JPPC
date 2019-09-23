@@ -4,7 +4,7 @@ lang: english
 layout: default
 ---
 
-*OUR PAST DECADE OF MAJOR CONCERTS*
+*OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"Yiddish Flavors of Love: A Musical Celebration"**  
 	Merkin Concert Hall, New York, NY, September 2019  
