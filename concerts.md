@@ -8,12 +8,12 @@ layout: center
   
 _____
 
-*SECOND ENCORE PERFORMANCE OF OUR SPRING and FALL 2019 GALAS*
+*SECOND ENCORE PERFORMANCE OF OUR SPRING and FALL 2019 CONCERTS*
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
 
-*ENGLISH SUPERTITLES*
+*ENGLISH TRANSLATIONS PROVIDED*
 
 Songs about...  
 flirtation ~ nostalgia ~ passion ~ seduction  
@@ -26,7 +26,7 @@ Shelter Rock Jewish Center
 272 Shelter Rock Road  
 Roslyn, NY 11576
 
-*SAVE THE DATE FOR OUR OUR SPRING 2020 GALA!*
+*SAVE THE DATE FOR OUR SPRING 2020 GALA*
 
 **Sunday, June 14, 2020, 3:00 p.m.**
 
@@ -34,7 +34,7 @@ Merkin Concert Hall
 129 West 67th Street  
 New York City
 
-TICKETS ON SALE IN FEBRUARY 2020!  
+TICKETS ON SALE IN FEBRUARY 2020  
 $40  
 $30 for groups of at least 10  
 
