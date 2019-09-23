@@ -26,7 +26,9 @@ Shelter Rock Jewish Center
 272 Shelter Rock Road  
 Roslyn, NY 11576
 
-*SAVE THE DATE FOR OUR SPRING 2020 GALA*
+_____
+
+##### SAVE THE DATE FOR OUR SPRING 2020 GALA
 
 **Sunday, June 14, 2020, 3:00 p.m.**
 
