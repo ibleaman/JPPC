@@ -8,7 +8,7 @@ layout: center
   
 _____
 
-*SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT*
+~~~*SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT*~~~
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration 
