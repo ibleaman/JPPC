@@ -46,4 +46,4 @@ _____
 
 # Archive
 
-[Click here](concerts_archive.html) to find information about our major past performances.
+[Click here](concerts_archive.html) to find information about our noteworthy past performances.
