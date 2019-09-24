@@ -4,14 +4,14 @@ lang: english
 layout: center
 ---
 
-# ~ Upcoming Concerts ~
+# Upcoming Concerts
   
 _____
 
-~~~ *SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT* ~~~
+*SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT*
 
 ### Yiddish Flavors of Love:
-### A Musical Celebration 
+### A Musical Celebration
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
@@ -28,7 +28,7 @@ Roslyn, NY 11576**
 
 _____
 
-##### SAVE THE DATE FOR OUR SPRING 2020 GALA
+##### ~ SAVE THE DATE FOR OUR SPRING 2020 GALA ~
 
 **Sunday, June 14, 2020, 3:00 p.m.**
 
