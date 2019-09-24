@@ -11,7 +11,7 @@ _____
 *SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT*
 
 ### *Yiddish Flavors of Love:
-### A Musical Celebration*
+### A Musical Celebration*  
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
@@ -20,7 +20,7 @@ flirtation ~ nostalgia ~ passion ~ seduction
 ~ parental love ~  
 love of ideas ~ love of activities ~ love of objects
 
-***Saturday, November 9, 2019, 8:00 p.m.***
+**Saturday, November 9, 2019, 8:00 p.m.**
 
 Shelter Rock Jewish Center  
 272 Shelter Rock Road  
