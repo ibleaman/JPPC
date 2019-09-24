@@ -10,8 +10,8 @@ _____
 
 *SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT*
 
-### *Yiddish Flavors of Love:
-### A Musical Celebration*  
+### Yiddish Flavors of Love:
+### A Musical Celebration 
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
