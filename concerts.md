@@ -22,9 +22,9 @@ love of ideas ~ love of activities ~ love of objects
 
 **Saturday, November 9, 2019, 8:00 p.m.**
 
-Shelter Rock Jewish Center  
+**Shelter Rock Jewish Center  
 272 Shelter Rock Road  
-Roslyn, NY 11576
+Roslyn, NY 11576**
 
 _____
 
@@ -32,9 +32,9 @@ _____
 
 **Sunday, June 14, 2020, 3:00 p.m.**
 
-Merkin Concert Hall  
+**Merkin Concert Hall  
 129 West 67th Street  
-New York City
+New York City**
 
 TICKETS ON SALE IN FEBRUARY 2020  
 $40  
