@@ -8,14 +8,14 @@ layout: center
   
 _____
 
-*SECOND ENCORE PERFORMANCE OF OUR SPRING and FALL 2019 CONCERTS*
+*SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT*
 
 ### Yiddish Flavors of Love:
 ### A Musical Celebration
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
-Songs about...  
+Songs about  
 flirtation ~ nostalgia ~ passion ~ seduction  
 ~ parental love ~  
 love of ideas ~ love of activities ~ love of objects
