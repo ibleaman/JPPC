@@ -30,8 +30,6 @@ _____
 
 ##### ~ SAVE THE DATE FOR OUR SPRING 2020 GALA, ON THE THEME OF THE STAGES OF LIFE ~
 
-
-
 ### From Babies to Bubbies:
 ### A Lifetime in Yiddish Music
 
