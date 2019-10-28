@@ -28,7 +28,10 @@ Roslyn, NY 11576**
 
 _____
 
-##### ~ SAVE THE DATE FOR OUR SPRING 2020 GALA ~
+##### ~ SAVE THE DATE FOR OUR SPRING 2020 GALA, ON THE THEME OF THE STAGES OF LIFE ~
+
+### From Babies to Bubbies:
+### A Lifetime in Yiddish Music
 
 **Sunday, June 14, 2020, 3:00 p.m.**
 
