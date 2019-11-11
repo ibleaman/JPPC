@@ -17,8 +17,8 @@ _____
 
 <!--
 Binyumen, the way to type text but have it hidden from the final webpage is to put it inside a "comment."
-A comment begin with "<!--" and ends with "-->"
-the line above and below this example comment.
+A comment begin with:  "less than" angled bracket, exclamation point, and two hyphens
+A comment ends with:  two hyphens, "greater than" angled bracket.
 -->
 
 Songs about  
