@@ -15,6 +15,12 @@ _____
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
+<!--
+Binyumen, the way to type text but have it hidden from the final webpage is to put it inside a "comment."
+A comment begin with "<!--" and ends with "-->"
+the line above and below this example comment.
+-->
+
 Songs about  
 flirtation ~ nostalgia ~ passion ~ seduction  
 ~ parental love ~  
