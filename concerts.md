@@ -20,7 +20,19 @@ _____
 129 West 67th Street  
 New York City**
 
-TICKETS ON SALE IN FEBRUARY 2020  
+Among the songs to be performed are  
+*"Afn pripetshik," "Akhtsik er un zibetsik zi,"  
+"Di mizinke oysgegebn," "Harbstlid,"*  
+and much more.
+
+The concert will include songs by   
+Beyle Schaechter-Gottesman (1920-2013)  
+in honor of 100 years since her birth.
+
+TICKETS ON SALE IN FEBRUARY 2020 
+
+Discount tickets for groups (at least ten)  
+will be available from the box office
 
 [information@thejppc.org](mailto:information@thejppc.org)
 
