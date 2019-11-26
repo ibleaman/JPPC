@@ -19,8 +19,6 @@ _____
 New York City**
 
 TICKETS ON SALE IN FEBRUARY 2020  
-$40  
-$30 for groups of at least 10  
 
 [information@thejppc.org](mailto:information@thejppc.org)
 
