@@ -138,7 +138,7 @@ Peter Lubell
 Talia Martz-Oberlander  
 Adam Masser  
 Netalie Matalon  
-Lisa Rochman Mechanick
+Lisa Rochman Mechanick  
 Cheryl Merzel  
 Jordana Miller  
 Libi Miransky  
