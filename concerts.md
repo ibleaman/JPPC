@@ -9,6 +9,7 @@ layout: center
 _____
 ##### ~ SAVE THE DATE FOR OUR SPRING 2020 GALA, ON THE THEME OF THE STAGES OF LIFE ~
 
+
 ### From Babies to Bubbies:
 ### A Lifetime in Yiddish Music
 
@@ -22,10 +23,10 @@ New York City**
 
 Among the songs to be performed are  
 *"Afn pripetshik," "Akhtsik er un zibetsik zi,"  
-"Di mizinke oysgegebn," "Harbstlid,"*  
+"Di mizinke oysgegebn,"*  
 and much more.
 
-The concert will include songs by   
+The concert will also include songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
 in honor of 100 years since her birth.
 
