@@ -7,33 +7,6 @@ layout: center
 # Upcoming Concerts
   
 _____
-
-*~~~ SECOND ENCORE PERFORMANCE OF OUR SPRING 2019 CONCERT ~~~*
-
-### Yiddish Flavors of Love:
-### A Musical Celebration
-
-*ENGLISH TRANSLATIONS PROVIDED*
-
-<!--
-Binyumen, the way to type text but have it hidden from the final webpage is to put it inside a "comment."
-A comment begin with:  "less than" angled bracket, exclamation point, and two hyphens
-A comment ends with:  two hyphens, "greater than" angled bracket.
--->
-
-Songs about  
-flirtation ~ nostalgia ~ passion ~ seduction  
-~ parental love ~  
-love of ideas ~ love of activities ~ love of objects
-
-**Saturday, November 9, 2019, 8:00 p.m.**
-
-**Shelter Rock Jewish Center  
-272 Shelter Rock Road  
-Roslyn, NY 11576**
-
-_____
-
 ##### ~ SAVE THE DATE FOR OUR SPRING 2020 GALA, ON THE THEME OF THE STAGES OF LIFE ~
 
 ### From Babies to Bubbies:
