@@ -7,6 +7,7 @@ layout: default
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"Yiddish Flavors of Love: A Musical Celebration"**  
+	Shelter Rock Jewish Center, Roslyn, NY, November 2019  
 	Merkin Concert Hall, New York, NY, September 2019  
 	North American Jewish Choral Festival, Stamford, CT, July 2019  
 	Merkin Concert Hall, New York, NY, June 2019
