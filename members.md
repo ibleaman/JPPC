@@ -22,14 +22,12 @@ Larry (Leyzer) Gillig
 Susan Goldberg  
 Larry Goller  
 Richard Hoffman  
-Laurel Kallen  
 Elaine Kallenbach  
 Brian Kalver  
 Larry Kay  
 Marc Crawford Leavitt  
 Stuart Malkin  
 Brian Mayer  
-Lisa Rochman Mechanick  
 Solomon Miler  
 Leah Montesinos  
 Karen Esther Rood  
@@ -43,7 +41,6 @@ Gella Solomon-Puertas
 Sarah Spangenberg  
 Rina Rinkewich Spielberg  
 Shelly Wakefield  
-Dov Weinstock  
 Lori Weisenberg-Catalano  
 Robert Winograd  
 Lori-Ann "LA" Wynter  
