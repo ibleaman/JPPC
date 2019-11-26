@@ -23,7 +23,7 @@ New York City**
 
 Among the songs to be performed are  
 *"Afn pripetshik," "Akhtsik er un zibetsik zi,"  
-"Di mizinke oysgegebn,"*  
+"Di mizinke oysgegebn," "Dremlen feygl,"*  
 and much more.
 
 The concert will also include songs by   
