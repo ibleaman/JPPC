@@ -7,7 +7,7 @@ layout: center
 # Upcoming Concerts
   
 _____
-~ SAVE THE DATE FOR OUR SPRING 2020 GALA, ON THE THEME OF THE STAGES OF LIFE ~
+~ SAVE THE DATE FOR OUR SPRING 2020 GALA CONCERT, ON THE THEME OF THE STAGES OF LIFE ~
 
 
 ### From Babies to Bubbies:
