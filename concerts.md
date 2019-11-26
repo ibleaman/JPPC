@@ -12,6 +12,8 @@ _____
 ### From Babies to Bubbies:
 ### A Lifetime in Yiddish Music
 
+*ENGLISH TRANSLATIONS PROVIDED*
+
 **Sunday, June 14, 2020, 3:00 p.m.**
 
 **Merkin Concert Hall  
