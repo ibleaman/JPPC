@@ -106,6 +106,7 @@ Linda Jacknow
 Marisa James  
 Arthur (Avram) Kahn, z"l  
 Eliott Kahn  
+Laurel Kallen  
 Elaine Kallenbach  
 Ruth Katz  
 Stephen Geller Katz  
@@ -137,6 +138,7 @@ Peter Lubell
 Talia Martz-Oberlander  
 Adam Masser  
 Netalie Matalon  
+Lisa Rochman Mechanick
 Cheryl Merzel  
 Jordana Miller  
 Libi Miransky  
@@ -208,6 +210,7 @@ Tobaron Waxman
 Sylvia Weinberger  
 Shirley Weiner  
 Bina Weinreich, z"l  
+Dov Weinstock  
 Janice Weintraub  
 Barbara Weiss  
 Doris Weiss  
