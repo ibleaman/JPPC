@@ -7,7 +7,7 @@ layout: center
 # Upcoming Concerts
   
 _____
-~ SAVE THE DATE FOR OUR SPRING 2020 GALA CONCERT, ON THE THEME OF THE STAGES OF LIFE ~
+~ SAVE THE DATE FOR OUR SPRING 2020 GALA CONCERT ~
 
 
 ### From Babies to Bubbies:
@@ -21,14 +21,10 @@ _____
 129 West 67th Street  
 New York City**
 
-Among the songs to be performed are  
 *"Afn pripetshik," "Akhtsik er un zibetsik zi,"  
 "Di mizinke oysgegebn," "Dremlen feygl,"*  
-and much more.
-
-The concert will also include songs by   
+plus songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
-in honor of 100 years since her birth.
 
 TICKETS ON SALE IN FEBRUARY 2020 
 
