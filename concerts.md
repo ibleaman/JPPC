@@ -22,14 +22,14 @@ _____
 New York City**
 
 *"Afn pripetshik," "Akhtsik er un zibetsik zi,"  
-"Di mizinke oysgegebn," "Dremlen feygl,"*  
+"Di mizinke oysgegebn," "Yome, Yome,"*  
 plus songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
 
-TICKETS ON SALE IN FEBRUARY 2020 
+TICKETS NOW ON SALE: $40 
 
-Discount tickets for groups (at least ten)  
-will be available from the box office
+$30 Discount tickets for groups (at least ten)  
+are available from the box office
 
 [information@thejppc.org](mailto:information@thejppc.org)
 
