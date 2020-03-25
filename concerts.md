@@ -22,7 +22,7 @@ _____
 New York City**
 
 *"Afn pripetshik," "Akhtsik er un zibetsik zi," "Di mizinke oysgegebn,"    
-"Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome,"*  
+"Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome," "Yugnt-himen,"*  
 plus songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
 
