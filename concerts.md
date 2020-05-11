@@ -30,7 +30,6 @@ plus songs by
 Beyle Schaechter-Gottesman (1920-2013)  
 
 TICKETS: $40  
-[Click here](https://www.kaufmanmusiccenter.org/mch/event/from-babies-to-bubbies-a-lifetime-in-yiddish-song/) for tickets.
 
 $30 Discount tickets for groups (at least ten)  
 are available from the box office
