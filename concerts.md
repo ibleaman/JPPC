@@ -7,7 +7,7 @@ layout: center
 # Upcoming Concerts
   
 _____
-~ SAVE THE DATE FOR OUR SPRING 2020 GALA CONCERT ~
+~ SAVE THE DATE FOR OUR UPCOMING GALA CONCERT ~
 
 
 ### From Babies to Bubbies:
