@@ -29,7 +29,7 @@ New York City**
 plus songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
 
-TICKETS NOW ON SALE: $40  
+TICKETS: $40  
 [Click here](https://www.kaufmanmusiccenter.org/mch/event/from-babies-to-bubbies-a-lifetime-in-yiddish-song/) for tickets.
 
 $30 Discount tickets for groups (at least ten)  
