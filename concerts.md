@@ -7,18 +7,18 @@ layout: center
 # Upcoming Concerts
   
 _____
-~ REGARDING OUR UPCOMING GALA CONCERT ~
+## COVID-19 UPDATE ##  
+## REGARDING OUR UPCOMING GALA CONCERT ## 
 
+# For the sake of public safety, performance spaces will still be closed this June. #  
+# So we need to postpone the event until 2021 – date TBA. #  
+
+*********
 
 ### From Babies to Bubbies:
 ### A Lifetime in Yiddish Music
 
 *ENGLISH TRANSLATIONS PROVIDED*
-
-~~Sunday, June 14, 2020, 3:00 p.m.~~   
-## COVID-19 UPDATE ##    
-For the sake of public safety, performance spaces will still be closed this June.  
-So we need to postpone the event until 2021 – date TBA.
 
 **Merkin Concert Hall  
 129 West 67th Street  
