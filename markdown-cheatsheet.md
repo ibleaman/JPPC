@@ -1,7 +1,7 @@
 ---
 title: Markdown Cheatsheet
 lang: english
-layout: center
+layout: default
 ---
 
 This is intended as a quick reference and showcase.
