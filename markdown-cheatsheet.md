@@ -1,3 +1,9 @@
+---
+title: Upcoming Performances
+lang: english
+layout: center
+---
+
 This is intended as a quick reference and showcase.
 
 ##### Table of Contents  
