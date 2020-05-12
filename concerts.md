@@ -7,7 +7,7 @@ layout: center
 # Upcoming Concerts
   
 _____
-~ SAVE THE DATE FOR OUR UPCOMING GALA CONCERT ~
+~ REGARDING OUR UPCOMING GALA CONCERT ~
 
 
 ### From Babies to Bubbies:
@@ -16,8 +16,8 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*
 
 ~~Sunday, June 14, 2020, 3:00 p.m.~~   
-**COVID-19 UPDATE**  
-For the sake of public safety, performance spaces will still be closed at that time.  
+***COVID-19 UPDATE***  
+For the sake of public safety, performance spaces will still be closed this June.  
 So we need to postpone the event until 2021 – date TBA.
 
 **Merkin Concert Hall  
