@@ -31,14 +31,6 @@ This is intended as a quick reference and showcase.
 #### H4
 ##### H5
 ###### H6
-
-Alternatively, for H1 and H2, an underline-ish style:
-
-Alt-H1
-======
-
-Alt-H2
-------
 ```
 
 # H1
@@ -47,14 +39,6 @@ Alt-H2
 #### H4
 ##### H5
 ###### H6
-
-Alternatively, for H1 and H2, an underline-ish style:
-
-Alt-H1
-======
-
-Alt-H2
-------
 
 <a name="emphasis"/>
 
