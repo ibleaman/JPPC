@@ -7,11 +7,11 @@ layout: center
 # Upcoming Concerts
   
 _____
-## COVID-19 UPDATE ##  
-## REGARDING OUR UPCOMING GALA CONCERT ##
+## COVID-19 UPDATE  
+## REGARDING OUR UPCOMING GALA CONCERT
 
-### For the sake of public safety, performance spaces will still be closed this June.  
-### So we need to postpone the event until 2021 – date TBA.  
+##### For the sake of public safety, performance spaces will still be closed this June.  
+##### So we need to postpone the event until 2021 – date TBA.  
 
 *********
 
