@@ -11,7 +11,7 @@ _____
 ## REGARDING OUR UPCOMING GALA CONCERT
 
 ###### For the sake of public safety, performance spaces will still be closed in June.  
-The event will be postponed until 2021 (date TBA).  
+###### The event will be postponed until 2021 (date TBA).  
 
 *********
 
