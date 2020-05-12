@@ -16,7 +16,7 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*
 
 ~~Sunday, June 14, 2020, 3:00 p.m.~~   
-***COVID-19 UPDATE***  
+## COVID-19 UPDATE ##    
 For the sake of public safety, performance spaces will still be closed this June.  
 So we need to postpone the event until 2021 – date TBA.
 
