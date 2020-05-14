@@ -20,6 +20,8 @@ _____
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
+~~Sunday, June 14, 2020, 3:00 p.m. ~~
+
 **Merkin Concert Hall  
 129 West 67th Street  
 New York City**
