@@ -13,12 +13,12 @@ Mary-Lynne Bird
 Nancy Braman  
 Lynne Cassouto  
 Shoshy Ciment  
+BethAnn Cohen  
 Brian Conley  
 Cynthia Ehrenkrantz  
 Miriam Ehrlich  
 Alisa Eilenberg  
 Avi Eisen  
-BethAnn Freed  
 Wendy Ganz  
 Vivian Gelber  
 Larry (Leyzer) Gillig  
