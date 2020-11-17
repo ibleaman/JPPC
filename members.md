@@ -12,7 +12,10 @@ Nan Bases
 Mary-Lynne Bird  
 Nancy Braman  
 Lynne Cassouto  
+Shoshy Ciment  
+Brian Conley  
 Cynthia Ehrenkrantz  
+Miriam Ehrlich  
 Alisa Eilenberg  
 Avi Eisen  
 BethAnn Freed  
@@ -25,12 +28,14 @@ Richard Hoffman
 Elaine Kallenbach  
 Brian Kalver  
 Larry Kay  
+Sharon Kinstlinger  
 Marc Crawford Leavitt  
 Stuart Malkin  
 Brian Mayer  
 Solomon Miler  
 Leah Montesinos  
 Karen Esther Rood  
+Tina Rosenberg  
 Linda Rosengart  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
