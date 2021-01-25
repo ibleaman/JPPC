@@ -14,7 +14,7 @@ layout: default
 **1925** - The Jewish Workers Music Alliance *(Der yidish-muzikalisher arbeter-farband)* is founded as funding organization for many Yiddish choruses. During its 60-year existence, the Alliance publishes 7-8 collections of Yiddish choral works and solo works (first under the title *"Mit gezang tsum kamf",* then *"Gezang un kamf"*), edited by FGF conductors Jacob Schaefer and Max Helfman  
 **1926** - Feb. 20, Mecca Temple, NYC - The FGF, conducted by Weiner, debuts Jacob Schaefer's oratorio, Tsvey Brider, the first time a Yiddish chorus performed with an orchestra  
 **1926-36** - Jacob Schaefer conducts the FGF, at its height a 300-singer chorus  
-**1920s** - Choruses of the International Workers Order / IWO *("ordn-khorn")* spring up all over the city (Washington Heights, Brighton, Brownsville, Coney Island, Kings Highway, Jamaica, two in the Bronx, the "Downtown" and the "Yugnt" branch), the tri-state area (Newark, Passaic, Paterson, Farmer's Chorus and Connecticut) and the country (Boston, Chicago, Cleveland, Detroit, Miami, Philadelphia, Washington DC, Bay Area, Los Angeles, Petaluma). There were 30 in all, nationwide  
+**1920s** - Choruses of the International Workers Order / IWO *("ordn-khorn")* spring up all over the city (Washington Heights, Brighton, Brownsville, Coney Island, Kings Highway, Jamaica, two in the Bronx, the "Downtown" and the *"Yugnt"* branch), the tri-state area (Newark, Passaic, Paterson, Farmer's Chorus and Connecticut) and the country (Boston, Chicago, Cleveland, Detroit, Miami, Philadelphia, Washington DC, Bay Area, Los Angeles, Petaluma). There were 30 in all, nationwide  
 **1932** - "*Mit gezang tsum kamf* - Songs for Voice and Piano" published by the International Workers Order, compiled and arranged by Jacob Schaefer  
 **1934** - *"Gezang un kamf",* the 2nd in the series, now with a new name, and now published by *Der yidisher muzikalisher arbeter-farband* / IMAF (106 E 14 St, NYC), complied and edited by Jacob Schaefer  
 **1935-40** - *"Gezang un kamf",* issues 3 through 8, are published, one each year, edited by Schaefer through 1936, Helfman from 1938-1940, and a combination of the two for the issue that was published in 1937  
@@ -47,7 +47,7 @@ layout: default
 **2001** - The JPPC sings for a Chanuka Memorial Ceremony at Ground Zero, site of the World Trade Center terrorist attacks  
 **2002, 2005, 2006** - The JPPC is the only Jewish chorus to perform at the New York International Choral Festival at Alice Tully Hall (Lincoln Center)  
 **2003** - The Jewish People’s Philharmonic Chorus celebrates 80 years of preserving, creating, and sharing Yiddish song, becoming the world’s longest continually operating Jewish chorus  
-**2005** - The JPPC is the first Yiddish chorus to perform at Shea Stadium (Queens, NY), singing our National Anthem at the NY Mets' Jewish Heritage Day, as well as Mark Zuckerman's choral arrangement of "America the Beautiful" in Yiddish ("Amerike di prekhtike")  
+**2005** - The JPPC is the first Yiddish chorus to perform at Shea Stadium (Queens, NY), singing our National Anthem at the NY Mets' Jewish Heritage Day, as well as Mark Zuckerman's choral arrangement of "America the Beautiful" in Yiddish *("Amerike di prekhtike")*  
 **2006** - The JPPC releases its first CD, the Chorus' first recording in 39 years  
 **2007** - The JPPC records its first live-in-concert DVD, which was then released in 2009  
 **2007** - The JPPC for the first time is filmed and recorded for a feature film, "Tickling Leo", released in 2009  
