@@ -88,8 +88,7 @@ Pearl Gluck
 Sophie Gluck  
 Pearl Graiver, z"l  
 Seymour Graiver, z"l  
-Rebecca Green  
-Shoshana Greenberg  
+Rebecca Green   
 Jeanette Greenwald, z"l  
 Jack Grossman  
 David Grotell  
@@ -162,7 +161,6 @@ John Réal
 Johanna Reissman  
 Tina Rosenberg  
 Eve Roshevsky  
-Andy Roth  
 Moshe Rube  
 Larry Rubin  
 Yankl Salant  
