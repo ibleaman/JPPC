@@ -23,6 +23,7 @@ Vivian Gelber
 Larry (Leyzer) Gillig  
 Susan Goldberg  
 Larry Goller  
+Shoshana Greenberg  
 Lydia Cohen Harris  
 Richard Hoffman  
 Elaine Kallenbach  
@@ -37,6 +38,7 @@ Leah Montesinos
 Karen Esther Rood  
 Tina Rosenberg  
 Linda Rosengart  
+Andy Roth  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
 Paulette Schneider  
