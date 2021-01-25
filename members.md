@@ -14,7 +14,6 @@ Nancy Braman
 Lynne Cassouto  
 Shoshy Ciment  
 BethAnn Cohen  
-Brian Conley  
 Cynthia Ehrenkrantz  
 Miriam Ehrlich  
 Alisa Eilenberg  
@@ -24,6 +23,7 @@ Vivian Gelber
 Larry (Leyzer) Gillig  
 Susan Goldberg  
 Larry Goller  
+Lydia Cohen Harris  
 Richard Hoffman  
 Elaine Kallenbach  
 Brian Kalver  
