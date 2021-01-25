@@ -23,7 +23,7 @@ layout: default
 **1937** - The Jewish Workers Music Alliance changes its name to the Jewish Music Alliance *(Der yidisher muzik-farband)*  
 **1938** - Freiheit newspaper editor Moyshe Olgin passes away. A force in the creation and continuation of the FGF, Olgin is memorialized by the song *"Mir zogn tsu"* (words: Yuri Suhl; music: Max Helfman), which becomes a staple of the FGF's repertoire  
 **1948** - The FGF changes its name to the Jewish People's Philharmonic Chorus  
-**1948** - Sun. eve, June 13, Carnegie Hall - Max Helfman's final concert with the JPPC and premiere of Helfman's "Di Naye Hagode", his haunting setting of Itsik Fefer's epic poem, *"Di shotns fun varshever geto"* (Shadows of the Warsaw Ghetto)  
+**1948** - Sun. eve, June 13, Carnegie Hall - Max Helfman's final concert with the JPPC and premiere of Helfman's *"Di Naye Hagode",* his haunting setting of Itsik Fefer's epic poem, *"Di shotns fun varshever geto"* (Shadows of the Warsaw Ghetto)  
 **1948-52** - Dr Leon Kopf, German refugee, conducts the JPPC. The earliest Chorus recording dates from this period  
 **1952-60** - Eugene (Yehuda) Malek conducts the JPPC  
 **1953** - The first annual concert of the Jewish Cultural Clubs and Societies features the sister chorus of the JPPC, the Jewish People's Chorus of New York (JPCNY) conducted by Maurice Rauch, performing the first of many dramatic chorales written by Itche Goldberg in collaboration with Rauch as composer
