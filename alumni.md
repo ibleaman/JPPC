@@ -7,7 +7,6 @@ layout: default
 ## Former Members
 
 Jo Abrams  
-Sima Abrams  
 Max Alper  
 Marilyn Apelson  
 John Authers  
