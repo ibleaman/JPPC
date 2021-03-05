@@ -6,6 +6,7 @@ layout: default
 
 # Current Members
 
+Sima Abrams  
 Marjory Appel  
 Pamela Baron  
 Nan Bases  
@@ -39,6 +40,7 @@ Karen Esther Rood
 Tina Rosenberg  
 Linda Rosengart  
 Andy Roth  
+Sara Ruderman  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
 Paulette Schneider  
