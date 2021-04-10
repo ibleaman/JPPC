@@ -5,7 +5,7 @@ layout: center
 ---
 
 # Upcoming Concerts
-  
+
 _____
 ## COVID-19 UPDATE  
 ## REGARDING OUR UPCOMING GALA CONCERT
@@ -31,7 +31,7 @@ New York City**
 plus songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
 
-[info@YiddishChorus.org](mailto:info@YiddishChorus.org)
+[info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
 _____
 
