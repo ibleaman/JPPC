@@ -20,4 +20,4 @@ We hold auditions, by appointment only, in midtown Manhattan during August and S
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
-For more information, please contact us at [information@thejppc.org](mailto:information@thejppc.org).
+For more information, please contact us at [info@YiddishChorus.org](mailto:info@YiddishChorus.org).
