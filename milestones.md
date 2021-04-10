@@ -4,10 +4,10 @@ lang: english
 layout: default
 ---
 
-# JPPC Milestones 1922-2013
+# Yiddish Philharmonic Chorus (YPC) Milestones 1922-2013
 
 ![](img/1923.jpg)
-<p style="text-align:center;font-weight:bold;">The JPPC, 1923</p>
+<p style="text-align:center;font-weight:bold;">The YPC, 1923</p>
 
 **1922** - The *Freiheit Gezang Farein* (FGF) is founded by conductor/composer Lazar Weiner on New York's Lower East Side  
 **1923** - Sat., Feb. 23, Carnegie Hall - FGF gives its first concert, including a song that was to be a staple of its repertoire for some 20 years: *"Di Internatsionale"*  
@@ -23,7 +23,7 @@ layout: default
 **1937** - The Jewish Workers Music Alliance changes its name to the Jewish Music Alliance *(Der yidisher muzik-farband)*  
 **1938** - Freiheit newspaper editor Moyshe Olgin passes away. A force in the creation and continuation of the FGF, Olgin is memorialized by the song *"Mir zogn tsu"* (words: Yuri Suhl; music: Max Helfman), which becomes a staple of the FGF's repertoire  
 **1948** - The FGF changes its name to the Jewish People's Philharmonic Chorus  
-**1948** - Sun. eve, June 13, Carnegie Hall - Max Helfman's final concert with the JPPC and premiere of Helfman's *"Di Naye Hagode",* his haunting setting of Itsik Fefer's epic poem, *"Di shotns fun varshever geto"* (Shadows of the Warsaw Ghetto)  
+**1948** - Sun. eve, June 13, Carnegie Hall - Max Helfman's final concert with the Chorus and premiere of Helfman's *"Di Naye Hagode",* his haunting setting of Itsik Fefer's epic poem, *"Di shotns fun varshever geto"* (Shadows of the Warsaw Ghetto)  
 **1948-52** - Dr Leon Kopf, German refugee, conducts the JPPC. The earliest Chorus recording dates from this period  
 **1952-60** - Eugene (Yehuda) Malek conducts the JPPC  
 **1953** - The first annual concert of the Jewish Cultural Clubs and Societies features the sister chorus of the JPPC, the Jewish People's Chorus of New York (JPCNY) conducted by Maurice Rauch, performing the first of many dramatic chorales written by Itche Goldberg in collaboration with Rauch as composer
@@ -56,3 +56,6 @@ layout: default
 **2010** - The JPPC performs for the first time in Riverside Church, as the only Jewish chorus in the 5th New York International Choral Festival  
 **2011** - The JPPC becomes the first Yiddish chorus ever to perform standing entirely mixed  
 **2013** - The JPPC is invited to perform (and performs) at the Cathedral of St. John the Divine, the 4th largest church in the world  
+**2014** - The JPPC posts its first videos on YouTube  
+**2016** - The JPPC performs its annual gala spring concert for the first time at Merkin Concert Hall  
+**2021** - The JPPC changes its name to the Yiddish Philharmonic Chorus  
