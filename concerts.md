@@ -31,7 +31,7 @@ New York City**
 plus songs by   
 Beyle Schaechter-Gottesman (1920-2013)  
 
-[information@thejppc.org](mailto:information@thejppc.org)
+[info@YiddishChorus.org](mailto:info@YiddishChorus.org)
 
 _____
 
