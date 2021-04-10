@@ -7,7 +7,7 @@ layout: default
 # Yiddish Philharmonic Chorus (YPC) Milestones 1922-
 
 ![](img/1923.jpg)
-<p style="text-align:center;font-weight:bold;">The FGF, 1923</p>
+<p style="text-align:center;font-weight:bold;">The Freiheit Gezang Farein, 1923</p>
 
 **1922** - The *Freiheit Gezang Farein* (FGF) is founded by conductor/composer Lazar Weiner on New York's Lower East Side  
 **1923** - Sat., Feb. 23, Carnegie Hall - FGF gives its first concert, including a song that was to be a staple of its repertoire for some 20 years: *"Di Internatsionale"*  
