@@ -19,7 +19,7 @@ We perform each spring and fall at Merkin Concert Hall and most summers at the N
 ## Catch up on some recent YPC press
 
 [The Jewish Week](http://www.thejewishweek.com/blogs/well-versed/hitting-yiddish-high-notes)  
-[Tablet Magazine](http://www.tabletmag.com/arts-and-culture/music/32368/in-tune/)  
+[Tablet Magazine](https://www.tabletmag.com/sections/arts-letters/articles/in-tune)  
 [New Jersey Jewish Standard](http://www.jstandard.com/index.php/content/item/18807/)  
 
 ## Hire us!
