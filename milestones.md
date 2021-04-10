@@ -4,7 +4,7 @@ lang: english
 layout: default
 ---
 
-# Yiddish Philharmonic Chorus (YPC) Milestones
+# Yiddish Philharmonic Chorus (YPC) Milestones 1922-
 
 ![](img/1923.jpg)
 <p style="text-align:center;font-weight:bold;">The Freiheit Gezang Farein, 1923</p>
