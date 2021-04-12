@@ -14,7 +14,7 @@ The Chorus rehearses on Monday evenings from 7:00 to 9:30 p.m. in Midtown Manhat
 
 Concert dates and locations, once confirmed, are included in the Concerts page on this website.
 
-In 2021, we are hoping that in-person rehearsals will resume on September 13th, and then, after a two-week break due to the Jewish holidays, will continue from October 4th on.
+We hope to resume in-person rehearsals in September, 2021.
 
 # Auditions
 
