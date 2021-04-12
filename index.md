@@ -8,7 +8,7 @@ layout: default
 
 Welcome to the twenty-first-century Yiddish renaissance!
 
-The Yiddish Philharmonic Chorus (YPC), formerly the Jewish People's Philharmonic Chorus (JPPC), is a multigenerational forty-voice ensemble.  We're students, professionals, and robust retirees, all in love with singing and committed to promoting Yiddish language and culture through beautiful four-part harmony.
+The Yiddish Philharmonic Chorus, formerly the Jewish People's Philharmonic Chorus (JPPC), is a multigenerational forty-voice ensemble.  We're students, professionals, and robust retirees, all in love with singing and committed to promoting Yiddish language and culture through beautiful four-part harmony.
 
 Few of us are fluent, but we all learn together from the Yiddish vocal literature—traditional folk songs, settings of classic and contemporary poetry, labor anthems, theater works, holiday standards, and modern pieces in translation.   
 
@@ -16,7 +16,7 @@ Each season, our conductor, Binyumen Schaechter, creates brand-new choral arrang
 
 We perform each spring and fall at Merkin Concert Hall and most summers at the North American Jewish Choral Festival in Stamford, Connecticut.  We've also performed at Symphony Space, Carnegie Hall, Shea Stadium, West Point, Ground Zero, and places of worship throughout the New York metropolitan area.  See our concerts page to find out what we're doing next and what we've done over the past decade.
 
-## Catch up on some recent YPC press
+## Catch up on some of our recent press
 
 [The Jewish Week](http://www.thejewishweek.com/blogs/well-versed/hitting-yiddish-high-notes)  
 [Tablet Magazine](https://www.tabletmag.com/sections/arts-letters/articles/in-tune)  
