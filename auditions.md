@@ -14,10 +14,12 @@ The Chorus rehearses on Monday nights from 7:00 to 9:30 p.m. in Midtown Manhatta
 
 Concert dates and locations, once confirmed, are included in the Concerts page on this website.
 
+In 2021, we are hoping that in-person rehearsals will resume on September 13th, and then, after a two-week break due to the Jewish holidays, will continue from October 4th on.
+
 # Auditions
 
-During the pandemic, auditions take place over the phone, at a mutually agreed upon time by the singer and conductor.  When there is no pandemic, we hold auditions, by appointment only, in midtown Manhattan during August and September. You may benefit from attending one of our concerts before you audition. Please visit the Concerts page on this website for some information about our upcoming concerts.
-
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
+
+During the pandemic, auditions take place over the phone, at a mutually agreed upon time by the singer and conductor.  When there is no pandemic, we hold auditions, by appointment only, in midtown Manhattan during August and September. You may benefit from attending one of our concerts before you audition. Please visit the Concerts page on this website for some information about our upcoming concerts.
 
 For more information, please contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
