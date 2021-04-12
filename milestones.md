@@ -4,7 +4,7 @@ lang: english
 layout: default
 ---
 
-# Yiddish Philharmonic Chorus (YPC) Milestones 1922-
+# Yiddish Philharmonic Chorus Milestones 1922-
 
 ![](img/1923.jpg)
 <p style="text-align:center;font-weight:bold;">The Freiheit Gezang Farein, 1923</p>
@@ -29,7 +29,7 @@ layout: default
 **1953** - The first annual concert of the Jewish Cultural Clubs and Societies features the sister chorus of the JPPC, the Jewish People's Chorus of New York (JPCNY) conducted by Maurice Rauch, performing the first of many dramatic chorales written by Itche Goldberg in collaboration with Rauch as composer
 
 ![](img/1964.jpg)
-<p style="text-align:center;font-weight:bold;">The JPPC, 1964</p>
+<p style="text-align:center;font-weight:bold;">The Jewish People's Philharmonic Chorus (JPPC), 1964</p>
 
 **1958/59** - The JPCNY makes two recordings: A Goldfaden Collection, and the folk-operetta adapted from Sholom Aleichem stories, Sholem Aleichem Dir, Amerike!  (libretto: Martin Birnbaum, music: Maurice Rauch)  
 **1960-71** - The JPCNY merges into the JPPC and Maurice Rauch becomes conductor of the "new" chorus. During Rauch's tenure, the JPPC records Schaefer's *Tsvey Brider* (1967), the last recording of the Chorus, until 2006  
