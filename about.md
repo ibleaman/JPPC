@@ -4,7 +4,7 @@ lang: english
 layout: default
 ---
 
-# The Chorus
+# The Yiddish Philharmonic Chorus
 
 ![The Yiddish Philharmonic Chorus](img/2010.jpg "The Yiddish Philharmonic Chorus, 2010"){: .rounded .mx-auto .d-block }
 
