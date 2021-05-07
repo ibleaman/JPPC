@@ -14,9 +14,9 @@ Few of us are fluent, but we all learn together from the Yiddish vocal literatur
 
 Each season, our conductor, Binyumen Schaechter, creates brand-new choral arrangements to invigorate our growing repertoire of Yiddish choral music by renowned composers.  We've also commissioned and premiered works by Helen Medwedeff Greenberg z”l, Robert Ross, Josh Waletzky, and Mark Zuckerman.
 
-We perform each spring and fall at Merkin Concert Hall and most summers at the North American Jewish Choral Festival in Stamford, Connecticut.  We've also performed at Symphony Space, Carnegie Hall, Shea Stadium, West Point, Ground Zero, and places of worship throughout the New York metropolitan area.  See our concerts page to find out what we're doing next and what we've done over the past decade.
+We perform each spring and fall at Merkin Concert Hall and most summers at the North American Jewish Choral Festival in Stamford, Connecticut.  We've also performed at Symphony Space, Carnegie Hall, Shea Stadium, West Point, the World Trade Center site after 9/11, and places of worship throughout the New York metropolitan area.  See our concerts page to find out what we're doing next and what we've done over the past decade.
 
-## Catch up on some of our recent press
+## In the press
 
 [The Jewish Week](http://www.thejewishweek.com/blogs/well-versed/hitting-yiddish-high-notes)  
 [Tablet Magazine](https://www.tabletmag.com/sections/arts-letters/articles/in-tune)  
@@ -24,7 +24,7 @@ We perform each spring and fall at Merkin Concert Hall and most summers at the N
 
 ## Hire us!
 
-Our mission is to share Yiddish culture through choral music, both in the concert hall and in more intimate settings at private events.  We can help you plan a program and spice up your celebration in a novel way.  We can offer just a few songs or a longer set, with a small group of singers or the full chorus—depending upon your needs and our availability.  Please email us to discuss your needs: [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
+Our mission is to share Yiddish culture through choral music, both in the concert hall and in more intimate settings at private events.  We can help you plan a program and spice up your celebration in a novel way.  We can offer just a few songs or a longer set, with a small group of singers or the full chorus—depending upon your needs and our availability.  Please email us to discuss your vision: [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
 ## *A bisl* background on Yiddish
 
