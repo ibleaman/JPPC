@@ -24,4 +24,5 @@ Yiddish, Latin transcription, and full English translation is included with each
 
 [Click here for a list of songs and artists](zingt.html)
 
-**To inquire about ordering a CD, please contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org). 
+**To inquire about ordering a CD, please contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).  
+
