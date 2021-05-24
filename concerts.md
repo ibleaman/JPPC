@@ -22,7 +22,9 @@ _____
 New York City**
 
 Including *"Afn pripetshik," "Akhtsik er un zibetsik zi," "Di mizinke oysgegebn,"    
-"Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome," "Yugnt-himen,"* and much more.    
+"Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome," "Yugnt-himen,"* and much more.
+
+*TICKETS GO ON SALE IN MARCH, 2022*
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
