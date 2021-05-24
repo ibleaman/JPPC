@@ -13,6 +13,12 @@ layout: default
 
 Be sure to [follow us on Facebook](https://www.facebook.com/thejppc/)!
 
+# In the press
+
+[The Jewish Week](http://www.thejewishweek.com/blogs/well-versed/hitting-yiddish-high-notes)  
+[Tablet Magazine](https://www.tabletmag.com/sections/arts-letters/articles/in-tune)  
+[New Jersey Jewish Standard](http://www.jstandard.com/index.php/content/item/18807/)  
+
 # CD
 
 <img src="img/zingt_cover.jpg" alt="Zingt, album cover" width="50%"/>{: .rounded .mx-auto .d-block }
