@@ -14,7 +14,7 @@ The Chorus began as a musical expression of the Jewish labor movement. It was fo
 
 For more details on the Chorus’s history, [click here](milestones.html).
 
-# Our Conductor...
+# Our Conductor
 
 ![Binyumen Schaechter](img/binyumen_small.jpg "Binyumen Schaechter"){: .rounded .mx-auto .d-block height="350px" }
 
