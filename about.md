@@ -49,6 +49,8 @@ We’ve performed for diverse audiences in the greater New York area, bringing Y
 
 We also post excerpts of our concerts on YouTube. To be notified of future concerts and new YouTube postings, ask us to include your email address in our distribution list. Contact Paulette at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
+The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continues a tradition of recording Yiddish music that began in 1948. Generous donations to the Chorus by individuals and foundations provided the impetus for this project. The CD includes *“Reb Dovidl,” “Shoyshanas Yaakoyv,””Vaserl,”* and other Yiddish hits.
+
 # Our workshops
 
 During the COVID-19 pandemic, Binyumen Schaechter developed the Yiddish Song Workshop & Sing-Along through Zoom to keep the chorus involved in learning and singing. The series has been open to Yiddish-music-lovers everywhere, and nearly 700 people from around the world have registered for these Monday evening song events.  
