@@ -38,3 +38,8 @@ He toured for many years with both of his Yiddish-speaking actor-singer daughter
 Binyumen and his three sisters were raised in a Yiddish-speaking home by the linguist Dr. Mordkhe Schaechter and Charne Schaechter, *z”l.* The four siblings all speak Yiddish with their own offspring—a combined total of sixteen children and twenty-one grandchildren.
 
 Contact Binyumen at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
+
+# Our workshops
+
+During the COVID-19 pandemic, Binyumen Schaechter developed the Yiddish Song Workshop & Sing-Along through Zoom to keep the chorus involved in learning and singing. The series has been open to Yiddish-music-lovers everywhere, and nearly 700 people from around the world have registered for these Monday evening song events.
+To be notified of future Yiddish Workshop & Sing-Along sessions, ask us to include your email address in our distribution list. Contact Paulette at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
