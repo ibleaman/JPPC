@@ -7,11 +7,6 @@ layout: center
 # Upcoming Concerts
 
 _____
-## COVID-19 UPDATE  
-## REGARDING OUR UPCOMING GALA CONCERT
-
-###### For the sake of public safety, performance spaces will be closed this June.
-###### The event will be postponed until next season (date TBA).  
 
 *********
 
@@ -20,7 +15,7 @@ _____
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
-~~**Sunday, June 14, 2020, 3:00 p.m.**~~
+**Sunday, June 12, 2022, 1:00 p.m.**
 
 **Merkin Concert Hall  
 129 West 67th Street  
@@ -28,8 +23,6 @@ New York City**
 
 *"Afn pripetshik," "Akhtsik er un zibetsik zi," "Di mizinke oysgegebn,"    
 "Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome," "Yugnt-himen,"*  
-plus songs by   
-Beyle Schaechter-Gottesman (1920-2013)  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
