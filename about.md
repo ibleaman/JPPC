@@ -39,6 +39,13 @@ Binyumen and his three sisters were raised in a Yiddish-speaking home by the lin
 
 Contact Binyumen at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
+# Our concerts
+
+We provide our concert audiences with printed song translations and, when possible, supertitles. Thanks to these aids and to the Chorus’s expressive presentation, even the Yiddish-challenged can understand and appreciate our songs.  
+At our spring and fall concerts, audience members receive a special keepsake Journal. The 40-page booklet contains the full concert program, transliterated lyrics and translations, bios of the singers, and ads placed by individuals, businesses, and organizations to honor a Chorus member, memorialize a loved one, or promote a business or organization. To place an ad in a future Journal or to submit an article for inclusion, please contact Paulette at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
+We’ve performed for diverse audiences in the greater New York area, bringing Yiddish music to people of all ages in various settings—Lincoln Center, Shea Stadium, Congregation Kehilath Jeshurun (NYC), the World Trade Center site after 9/11, the Museum of the City of New York, the North American Jewish Choral Festival, Queens College, Riverside Church (NYC), Symphony Space, and West Point Military Academy. We generally hold our spring gala concert and our fall encore concert at Merkin Concert Hall.  
+We also post excerpts of our concerts on YouTube. To be notified of future concerts and new YouTube postings, ask us to include your email address in our distribution list. Contact Paulette at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
+
 # Our workshops
 
 During the COVID-19 pandemic, Binyumen Schaechter developed the Yiddish Song Workshop & Sing-Along through Zoom to keep the chorus involved in learning and singing. The series has been open to Yiddish-music-lovers everywhere, and nearly 700 people from around the world have registered for these Monday evening song events.  
