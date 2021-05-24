@@ -11,7 +11,7 @@ layout: default
 
 [Click here](https://www.youtube.com/channel/UCbCGJxhJOEDDlHxZqhp4cgQ) to see all of our videos on YouTube.
 
-Be sure to [follow us on Facebook](https://www.facebook.com/thejppc/)!
+Be sure to [follow us on Facebook](https://www.facebook.com/YiddishPhilharmonicChorus)!
 
 # In the press
 
