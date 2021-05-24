@@ -21,8 +21,8 @@ _____
 129 West 67th Street  
 New York City**
 
-*"Afn pripetshik," "Akhtsik er un zibetsik zi," "Di mizinke oysgegebn,"    
-"Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome," "Yugnt-himen,"*  
+Including *"Afn pripetshik," "Akhtsik er un zibetsik zi," "Di mizinke oysgegebn,"    
+"Moyshele, mayn fraynd," "Shlof, mayn kind," "Yome, Yome," "Yugnt-himen,"* and much more.    
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
