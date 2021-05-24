@@ -20,6 +20,6 @@ We hope to resume in-person rehearsals in September, 2021.
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
-During the pandemic, auditions take place over the phone, at a mutually agreed upon time by the singer and conductor.  When there is no pandemic, we hold auditions, by appointment only, in midtown Manhattan during August and September. You may benefit from attending one of our concerts before you audition. Please visit the Concerts page on this website for some information about our upcoming concerts.
+We ordinarily hold auditions, by appointment only, in Midtown Manhattan during August and September. You may benefit from attending one of our concerts before you audition. Please visit the Concerts page on this website for some information about our upcoming concerts.
 
 For more information, please contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
