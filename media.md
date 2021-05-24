@@ -24,7 +24,7 @@ Be sure to [follow us on Facebook](https://www.facebook.com/YiddishPhilharmonicC
 <img src="img/zingt_cover.jpg" alt="Zingt, album cover" width="50%"/>{: .rounded .mx-auto .d-block }
 
 The Chorus recorded several albums through 1967. “Zingt!,” our 2006 CD, showcases the range of musical styles, moods, and themes in our repertoire. This is the first recording of choral arrangements for many of these gems. The lyrics in Yiddish, transliteration, and English translation are included with the CD.  
-[Here's a sample:](attachments/vaserl_clip.mp3)
+[Click here for a sample](attachments/vaserl_clip.mp3)
 
 [Click here for a list of songs and artists](zingt.html)
 
