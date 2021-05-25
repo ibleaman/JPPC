@@ -18,7 +18,7 @@ We perform each spring and fall at Merkin Concert Hall and most summers at the N
 
 ## Hire us!
 
-Our mission is to share Yiddish culture through choral music, both in the concert hall and in more intimate settings at private events.  We can help you plan a program and spice up your celebration in a novel way.  We can offer just a few songs or a longer set, with a small group of singers or the full chorus—depending upon your needs and our availability.  Email us to discuss your vision: [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
+Our mission is to share Yiddish culture through choral music, both in the concert hall and in more intimate settings at private events.  We can help you plan a program and spice up your celebration in a novel way.  We can offer just a few songs or a longer set, with a small group of singers or the full chorus—depending upon your needs and our availability.  Do email us to discuss your vision: [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
 ## *A bisl* background on Yiddish
 
