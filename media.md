@@ -28,5 +28,5 @@ The Chorus recorded several albums through 1967. “Zingt!,” our 2006 CD, show
 
 [Click here for a list of songs and artists](zingt.html)
 
-**To inquire about ordering a CD, contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).  
+To inquire about ordering a CD, contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).  
 
