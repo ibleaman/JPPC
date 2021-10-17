@@ -43,7 +43,7 @@ We’ve performed for diverse audiences in the greater New York area, bringing Y
 
 We also post excerpts of our concerts on YouTube. To be notified of future concerts and new YouTube postings, ask us to include your email address in our distribution list. Contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
-The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continues a tradition of recording Yiddish music that began in 1948. Generous donations to the Chorus by individuals and foundations provided the impetus for this project. The CD includes *“Reb Dovidl,” “Shoyshanas Yaakoyv,” ”Vaserl,”* and other Yiddish hits.
+The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continues a tradition of recording Yiddish music that began in 1948. Generous donations to the Chorus by individuals and foundations provided the impetus for this project. The CD includes *“Reb Dovidl,” “Shoyshanas Yaakoyv,” “Vaserl,”* and other Yiddish hits.
 
 # Our workshops
 
