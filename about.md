@@ -49,12 +49,12 @@ The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continue
 
 During the COVID-19 pandemic, Binyumen Schaechter developed the Yiddish Song Workshop & Sing-Along (YSWS) through Zoom and YouTube to keep the chorus involved in learning and singing while they couldn’t meet in person. The series has been open to Yiddish-music-lovers everywhere.  Nearly 700 people from around the world have registered for these song events.  
 
-                   The next workshops on four Sunday evenings will feature Yiddish Chanukah songs:  
+The next workshops on four Sunday evenings will feature Yiddish Chanukah songs:  
 
-                               October 31, November 07, November 14, and November 28  
-                                              7 to 8 p.m. Eastern Time  
+October 31, November 07, November 14, and November 28  
+7 to 8 p.m. Eastern Time  
                                               
-                Click [here](https://us02web.zoom.us/meeting/register/tZYvc-qgpjMoGddICPc2_TjhCiqjTXYdyCjN) to register in advance
+Click [here](https://us02web.zoom.us/meeting/register/tZYvc-qgpjMoGddICPc2_TjhCiqjTXYdyCjN) to register in advance
 
 During the first three sessions, we’ll learn to sing a baker’s dozen of Yiddish Chanukah songs – the lyrics and translations are displayed on the screen.  We’ll also learn some linguistic, musical, and historical background for each song.  In the last session, on the first evening of Chanukah, we’ll have a sing-through of all the Yiddish Chanukah songs we learned.  And, together over Zoom around the world, we’ll sing the blessings and light the first Chanukah candle.  
 
