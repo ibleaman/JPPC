@@ -54,7 +54,7 @@ During the COVID-19 pandemic, Binyumen Schaechter developed the Yiddish Song Wor
                                October 31, November 07, November 14, and November 28  
                                               7 to 8 p.m. Eastern Time  
                                               
-                Click [here] (https://us02web.zoom.us/meeting/register/tZYvc-qgpjMoGddICPc2_TjhCiqjTXYdyCjN) to register in advance
+                Click [here](https://us02web.zoom.us/meeting/register/tZYvc-qgpjMoGddICPc2_TjhCiqjTXYdyCjN) to register in advance
 
 During the first three sessions, we’ll learn to sing a baker’s dozen of Yiddish Chanukah songs – the lyrics and translations are displayed on the screen.  We’ll also learn some linguistic, musical, and historical background for each song.  In the last session, on the first evening of Chanukah, we’ll have a sing-through of all the Yiddish Chanukah songs we learned.  And, together over Zoom around the world, we’ll sing the blessings and light the first Chanukah candle.  
 
