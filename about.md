@@ -51,8 +51,8 @@ During the COVID-19 pandemic, Binyumen Schaechter developed the Yiddish Song Wor
 
 The next workshops on four Sunday evenings will feature Yiddish Chanukah songs:  
 
-October 31, November 07, November 14, and, November 28  
+October 31, November 07, November 14, and November 28  
 
 7 to 8 p.m. Eastern Time  
 
-To be notified of future YSWS sessions, ask us to include your email address in our distribution list. Contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
+If you have questions, or you would like to be notified of future series of the YSWS, contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
