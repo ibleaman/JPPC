@@ -65,4 +65,4 @@ We hope to continue the YSWS in December with a series of two or three sessions 
 
 **We will hold this workshop only if there is enough demand.**  If you're interested and can attend the "YSWS: Itzik Manger" on those dates in December, please reply now at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
-The YSWS--conducted in English--is free and open to everyone.  As a donation premium, participants receive video links for each session and a Chanukah song booklet with transliterated lyrics and translations.  Contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org) for more about this and future YSWS series.  
+The YSWS--conducted in English--is free and open to everyone.  As a donation premium, participants can receive video links for each session and a Chanukah song booklet with transliterated lyrics and translations.  Contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org) for more about this and future YSWS series.  
