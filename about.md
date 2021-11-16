@@ -54,13 +54,15 @@ The current cycle on four Sunday evenings is featuring Yiddish Chanukah songs:
 October 31, November 07, November 14, and November 28, 2021  
 7 to 8 p.m. Eastern Time  
                                               
-Click [here](https://us02web.zoom.us/meeting/register/tZYvc-qgpjMoGddICPc2_TjhCiqjTXYdyCjN) to register in advance.
+Click [here](https://us02web.zoom.us/meeting/register/tZYudOCrpjIpE9zaw9zC6UyEZzwmF889m5zB) to register in advance.
 
 During the first three sessions, we learned to sing a baker’s dozen of Yiddish Chanukah songs – the lyrics and translations were displayed on the screen.  We also learned some linguistic, musical, and historical background for each song.  In the last session, on the first evening of Chanukah, we’ll have a sing-through of all the Yiddish Chanukah songs we learned.  And, together over Zoom around the world, we’ll light the first Chanukah candle and sing the blessings.
 
-We hope to continue the YSWS in December with a series of two or three sessions (December 5, 12, 19) on the songs of the great Yiddish poet Itzik Manger. Here are two examples of his work: 
-[*Afn veg shteyt a boym*](https://www.youtube.com/watch?v=BrMjgUuWnbg) performed in four-part harmony (translations provided)
-[*Yidl mit fidl*](https://www.youtube.com/watch?v=NjhAPTytLAc) performed by *Di Shekhter-tekhter*
+We hope to continue the YSWS in December with a series of two or three sessions (December 5, 12, 19) on the songs of the great Yiddish poet Itzik Manger. Here are two examples of his work:  
+
+[*Afn veg shteyt a boym*](https://www.youtube.com/watch?v=BrMjgUuWnbg) performed in four-part harmony (translations provided)  
+[*Yidl mit fidl*](https://www.youtube.com/watch?v=NjhAPTytLAc) performed by *Di Shekhter-tekhter*  
+
 **We will hold this workshop only if there is enough demand.**  If you're interested and can attend the "YSWS: Itzik Manger" on those dates in December, please reply now at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
 
 The YSWS--conducted in English--is free and open to everyone.  As a donation premium, participants receive video links for each session and a Chanukah song booklet with transliterated lyrics and translations.  Contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org) for more about this and future YSWS series.  
