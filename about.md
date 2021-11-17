@@ -54,7 +54,6 @@ During the first few sessions of each cycle, we learn to sing a host of Yiddish 
 The current cycle, featuring Chanukah songs, is being held from 7 to 8 p.m. Eastern Time on four Sunday evenings:
 
 October 31, November 07, November 14, and November 28, 2021  
-7 to 8 p.m. Eastern Time (6 p.m. Central Time, 4 p.m. Pacific Time)
 
 In the last session of this current cycle, on the first evening of Chanukah, we’ll have a sing-through of all the Yiddish Chanukah songs we learned.  And, together over Zoom around the world, we’ll light the first Chanukah candle and sing the blessings.
                                               
