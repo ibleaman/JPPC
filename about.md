@@ -47,16 +47,14 @@ The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continue
 
 # Our workshops
 
-During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and developed the Yiddish Song Workshop & Sing-Along to keep the chorus involved in learning and singing while they couldn’t meet in person. The series has been open to Yiddish-music-lovers everywhere.  Nearly 800 people from around the world have registered for these song events.  
+During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and developed the Yiddish Song Workshop & Sing-Along to keep the chorus involved in learning and singing while they couldn’t meet in person. The series has been open to Yiddish-music-lovers everywhere.  Nearly 900 people from around the world have registered for these song events.  
 
-During the first few sessions of each cycle, we learn to sing a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.
+In each series, we learn a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.
 
-The current cycle, featuring Chanukah songs, is being held from 7 to 8 p.m. Eastern Time on four Sunday evenings:
+The current series, featuring songs with lyrics by one of the greatest Yiddish oets, Itzik Manger – in honor of 120 years since his birth – is being held from 7 to 8 p.m. Eastern Time on three to four Sunday evenings:
 
-October 31, November 07, November 14, and November 28, 2021  
-
-In the last session of this current cycle, on the first evening of Chanukah, we’ll have a sing-through of all the Yiddish Chanukah songs we learned.  And, together over Zoom around the world, we’ll light the first Chanukah candle and sing the blessings.
+December 05, December 12, December 19, and possibly also December 26, 2021  
                                               
-Click [here](https://us02web.zoom.us/meeting/register/tZYudOCrpjIpE9zaw9zC6UyEZzwmF889m5zB) to register in advance.
+Click [here](https://us02web.zoom.us/meeting/register/tZwsdOyurj4iH9JDBCjZb4FdjOcRqIruBlLT) to register in advance.
 
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
