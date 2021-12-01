@@ -51,7 +51,7 @@ During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and dev
 
 In each series, we learn a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.
 
-The current series, featuring songs with lyrics by one of the greatest Yiddish oets, Itzik Manger – in honor of 120 years since his birth – is being held from 7 to 8 p.m. Eastern Time on three to four Sunday evenings:
+The current series, featuring songs with lyrics by one of the greatest Yiddish poets, Itzik Manger – in honor of 120 years since his birth – is being held from 7 to 8 p.m. Eastern Time on these Sunday evenings:
 
 December 05, December 12, December 19, and possibly also December 26, 2021  
                                               
