@@ -53,7 +53,7 @@ In each series, we learn a host of Yiddish songs on a particular theme – the l
 
 The current series, featuring songs with lyrics by one of the greatest Yiddish poets, Itzik Manger – in honor of 120 years since his birth – is being held from 7 to 8 p.m. Eastern Time on these Sunday evenings:
 
-December 05, December 12, December 19, and possibly also December 26, 2021  
+December 05, December 12, December 19
                                               
 Click [here](https://us02web.zoom.us/meeting/register/tZwsdOyurj4iH9JDBCjZb4FdjOcRqIruBlLT) to register in advance.
 
