@@ -47,14 +47,8 @@ The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continue
 
 # Our workshops
 
-During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and developed the Yiddish Song Workshop & Sing-Along to keep the chorus involved in learning and singing while they couldn’t meet in person. The series has been open to Yiddish-music-lovers everywhere.  Nearly 900 people from around the world have registered for these song events.  
+During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and developed the Yiddish Song Workshop & Sing-Along to keep the chorus involved in learning and singing while they couldn’t meet in person. The series has been open to Yiddish-music-lovers everywhere.  Nearly 1.000 people from around the world have registered for these song events.  
 
-In each series, we learn a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.
-
-The current series, featuring songs with lyrics by one of the greatest Yiddish poets, Itzik Manger – in honor of 120 years since his birth – is being held from 7 to 8 p.m. Eastern Time on these Sunday evenings:
-
-December 05, December 12, December 19
-                                              
-Click [here](https://us02web.zoom.us/meeting/register/tZwsdOyurj4iH9JDBCjZb4FdjOcRqIruBlLT) to register in advance.
+In each series, we learn a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.  Among the themes that have been covered so far are Yiddish Chanukah songs, Yiddish Purim songs, and Yiddish Pesach songs.  The most recent series, featuring songs with lyrics by one of the greatest Yiddish poets, Itzik Manger – in honor of 120 years since his birth – was held on three consecutive Sundays in December, 2021.  
 
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
