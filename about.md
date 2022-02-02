@@ -51,4 +51,10 @@ During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and dev
 
 In each series, we learn a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.  Among the themes that have been covered so far are Yiddish Chanukah songs, Yiddish Purim songs, and Yiddish Pesach songs.  The most recent series, featuring songs with lyrics by one of the greatest Yiddish poets, Itzik Manger – in honor of 120 years since his birth – was held on three consecutive Sundays in December, 2021.  
 
+Our next session will be:  
+
+Feb 27, 2022 07:00 PM in Eastern Time (US and Canada)  
+
+In one 90-minute session, Schaechter will teach a dozen Yiddish Purim songs.  
+
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
