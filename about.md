@@ -53,7 +53,7 @@ In each series, we learn a host of Yiddish songs on a particular theme – the l
 
 Our next session will be:  
 
-Feb 27, 2022 07:00 PM in Eastern Time (US and Canada)  
+February 27, 2022 at 7:00 PM Eastern Time  
 
 In one 90-minute session, Schaechter will teach a dozen Yiddish Purim songs.  
 
