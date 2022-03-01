@@ -24,14 +24,14 @@ _____
 129 West 67th Street  
 New York City**
 
-*"Afn pripetshik" ~ "Akhtsik er un zibetsik zi" ~ "Ba mir bistu sheyn" ~ "Dray tekhterlekh" ~ "Ikh hob dikh tsu fil lib" ~  
+*"Afn pripetshik" ~ "Akhtsik er un zibetsik zi" ~ "Ba mir bistu sheyn" ~ "Dray tekhterlekh" ~ "Ikh hob dikh tsu fil lib" ~    
 "Di mizinke oysgegebn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~ "Sheyn vi di levune" ~  
-"Shlof, mayn kind" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* and more.  
+"Shlof, mayn kind" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* and more  
 
 **_TICKETS AVAILABLE LATER THIS MONTH_**  
 **_LIVESTREAM (WITH TICKETS) IS PLANNED_**  
 
-To help mark the occasion, a beautiful 48-page keepsake Journal is being designed – including, among other things, all the lyrics and translations that will be performed that day, a listing of our donors, and a section of commemorative and celebratory ads – and this Journal will be available to all who attend in person.  
+FOR OUR LIVE AUDIENCE:  a 48-page concert journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
