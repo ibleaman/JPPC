@@ -13,7 +13,7 @@ _____
 ### OUR 100TH ANNIVERSARY CONCERT!
 ### &nbsp;
 ### From Babies to Bubbies:
-### A Lifetime in Yiddish Music
+### A Lifetime in Yiddish Song
 
 *ENGLISH TRANSLATIONS PROVIDED*
 
