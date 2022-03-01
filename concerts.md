@@ -16,7 +16,7 @@ _____
 ### A Lifetime in Yiddish Song
 
 *ENGLISH TRANSLATIONS PROVIDED*  
-*supertitles and print*
+*live supertitles and print*
 
 **Sunday, June 12, 2022, 1:00 p.m.**
 
