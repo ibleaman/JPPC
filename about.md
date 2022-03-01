@@ -53,8 +53,8 @@ In each series, we learn a host of Yiddish songs on a particular theme – the l
 
 Our next series, on consecutive Sundays at 7:00 PM Eastern Time, will be on the theme of Yiddish Pesach and Holocaust songs:  
 
-March 27, 2022
-April 3, 2022
-April 10, 2022
+March 27, 2022  
+April 3, 2022  
+April 10, 2022  
 
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
