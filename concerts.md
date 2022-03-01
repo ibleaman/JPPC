@@ -31,7 +31,7 @@ New York City**
 **_TICKETS AVAILABLE LATER THIS MONTH_**  
 **_LIVESTREAM (WITH TICKETS) IS PLANNED_**  
 
-FOR OUR LIVE AUDIENCE:  a 48-page keepsake concert journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
+A KEEPSAKE FOR OUR LIVE AUDIENCE:  a 48-page concert journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
