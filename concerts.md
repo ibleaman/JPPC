@@ -30,7 +30,7 @@ New York City**
 
 Including several World Premieres!  
 
-**tickets available later this month**
+**tickets available later this month**  
 **_admission: $50 ~ groups of 10 or more: $40_**  
 **_LIVESTREAM (WITH TICKETS) IS PLANNED_**  
 
