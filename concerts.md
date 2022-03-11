@@ -24,11 +24,13 @@ _____
 129 West 67th Street  
 New York City**
 
-*"Afn pripetshik" ~ "Akhtsik er un zibetsik zi" ~ "Ba mir bistu sheyn" ~ "Dray tekhterlekh" ~ "Ikh hob dikh tsu fil lib" ~    
-"Di mizinke oysgegebn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~ "Sheyn vi di levune" ~  
-"Shlof, mayn kind" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* and more  
+*"Afn pripetshik" ~ "Afn veg shteyt a boym," ~ "Akhtsik er un zibetsik zi" ~ "Ba mir bistu sheyn" ~   
+"Ikh hob dikh tsu fil lib" ~ "Di mizinke oysgegebn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~ 
+"Sheyn vi di levune" ~  "Shlof, mayn kind" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* and more  
 
-**_TICKETS AVAILABLE LATER THIS MONTH_**  
+*INCLUDING 8 WORLD PREMIERES*  
+
+**_TICKETS $50;  Groups of 10 or more: $40;  AVAILABLE LATER THIS MONTH_**  
 **_LIVESTREAM (WITH TICKETS) IS PLANNED_**  
 
 A KEEPSAKE FOR OUR LIVE AUDIENCE:  a 48-page concert journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
