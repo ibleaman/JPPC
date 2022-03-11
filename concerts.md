@@ -20,7 +20,7 @@ _____
 
 **Sunday, June 12, 2022, 1:00 p.m.**
 
-**Merkin Concert Hall  
+**Merkin Hall at Kaufman Music Center  
 129 West 67th Street  
 New York City**
 
