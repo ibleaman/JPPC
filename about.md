@@ -53,8 +53,8 @@ In each series, we learn a host of Yiddish songs on a particular theme – the l
 
 Our next two events will both be on Sundays at 7:00 p.m. ET: 
 
-March 27, 2022 – Yiddish Pesach songs.  To register, click [here](https://us02web.zoom.us/meeting/register/tZMvce6uqDMiGtESyNuRxvYIUkinLR_Sxkg1)  
+March 27, 2022 – Yiddish **Pesach** songs – to register, click [here](https://us02web.zoom.us/meeting/register/tZMvce6uqDMiGtESyNuRxvYIUkinLR_Sxkg1)  
 
-April 10, 2022 – Yiddish Hoilocaust songs.  To register, click [here](https://us02web.zoom.us/meeting/register/tZArfu2orzIsEtGkCQEr5Y__2WRmp4m48fu7)     
+April 10, 2022 – Yiddish **Holocaust** songs - to register, click [here](https://us02web.zoom.us/meeting/register/tZArfu2orzIsEtGkCQEr5Y__2WRmp4m48fu7)     
 
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
