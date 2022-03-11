@@ -51,7 +51,7 @@ During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and dev
 
 In each series, we learn a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.  Themes we've explored so far are Yiddish Chanukah songs, Yiddish Purim songs, Yiddish Pesach songs, and songs with lyrics by one of the greatest Yiddish poets, Itzik Manger.
 
-Our next two events will both be on Sundays at 7:00 p.m. ET: 
+Our next two ninety-minute events will both be on Sundays at 7:00 p.m. ET: 
 
 March 27, 2022 – Yiddish **Pesach** songs – to register, click [here](https://us02web.zoom.us/meeting/register/tZMvce6uqDMiGtESyNuRxvYIUkinLR_Sxkg1)  
 
