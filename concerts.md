@@ -30,10 +30,11 @@ New York City**
 
 Including several World Premieres!  
 
-**_TICKETS $50;  Groups of 10 or more: $40;  AVAILABLE LATER THIS MONTH_**  
+**tickets available later this month**
+**_admission: $50 ~ groups of 10 or more: $40_**  
 **_LIVESTREAM (WITH TICKETS) IS PLANNED_**  
 
-A KEEPSAKE FOR OUR LIVE AUDIENCE:  a 48-page concert journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
+for our live audience:  a 48-page keepsake journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
