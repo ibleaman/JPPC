@@ -25,7 +25,7 @@ _____
 New York City**
 
 *"Afn pripetshik" ~ "Afn veg shteyt a boym," ~ "Akhtsik er un zibetsik zi" ~ "Ba mir bistu sheyn" ~   
-"Ikh hob dikh tsu fil lib" ~ "Di mizinke oysgegebn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~ 
+"Ikh hob dikh tsu fil lib" ~ "Di mizinke oysgegebn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~   
 "Sheyn vi di levune" ~  "Shlof, mayn kind" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* and more  
 
 Including several World Premieres!  
