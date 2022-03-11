@@ -28,7 +28,7 @@ New York City**
 "Ikh hob dikh tsu fil lib" ~ "Di mizinke oysgegebn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~   
 "Sheyn vi di levune" ~  "Shlof, mayn kind" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* and more  
 
-Including several World Premieres!  
+Including several world premieres!  
 
 **tickets available later this month**  
 **_admission: $50 ~ groups of 10 or more: $40_**  
