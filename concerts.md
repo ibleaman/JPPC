@@ -30,7 +30,8 @@ New York City**
 
 Including several world premieres!  
 
-**_admission: $50;  groups of 10 or more: $40_**  
+**_admission: $50_** 
+**_groups of 10 or more: $40_**  
 
 **CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies/) TO ORDER**  
 
