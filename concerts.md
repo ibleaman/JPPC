@@ -32,7 +32,7 @@ Including several world premieres!
 
 **tickets now on sale!**  
 **_admission: $50 ~ groups of 10 or more: $40_**  
-**To order, click [here](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies/)
+**To order, click [here](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies/)  
 **_LIVESTREAM (WITH TICKETS) IS PLANNED_**  
 
 for our live audience:  a 48-page keepsake journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
