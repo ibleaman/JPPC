@@ -53,6 +53,6 @@ In each series, Schaechter presents a host of Yiddish songs on a particular them
 
 Our next 90-minute event will be on a **Sunday at 7:00 p.m. ET:**  
 
-**April 10, 2022** – Yiddish **Holocaust** songs - to register, click **[HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzIsEtGkCQEr5Y__2WRmp4m48fu7)**  
+**April 10, 2022** – **Yiddish Holocaust songs** - to register, click **[HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzIsEtGkCQEr5Y__2WRmp4m48fu7)**  
 
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
