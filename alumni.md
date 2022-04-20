@@ -11,6 +11,7 @@ Sima Abrams
 Max Alper  
 Marilyn Apelson  
 John Authers  
+Pamela Baron  
 Noah Barrera  
 Martin (Moshe) Bear  
 Muriel Beckerman  
