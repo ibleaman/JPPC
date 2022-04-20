@@ -6,40 +6,25 @@ layout: default
 
 # Current Members
 
-Sima Abrams  
 Marjory Appel  
 Pamela Baron  
 Nan Bases  
-Mary-Lynne Bird  
 Nancy Braman  
 Lynne Cassouto  
-Shoshy Ciment  
 BethAnn Cohen  
 Cynthia Ehrenkrantz  
-Miriam Ehrlich  
 Alisa Eilenberg  
-Avi Eisen  
 Wendy Ganz  
 Vivian Gelber  
-Larry (Leyzer) Gillig  
-Susan Goldberg  
 Larry Goller  
-Shoshana Greenberg  
-Lydia Cohen Harris  
 Richard Hoffman  
 Elaine Kallenbach  
 Brian Kalver  
 Larry Kay  
-Sharon Kinstlinger  
 Marc Crawford Leavitt  
-Stuart Malkin  
-Brian Mayer  
-Solomon Miler  
 Leah Montesinos  
 Karen Esther Rood  
-Tina Rosenberg  
 Linda Rosengart  
-Andy Roth  
 Sara Ruderman  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
