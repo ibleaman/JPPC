@@ -72,7 +72,7 @@ Donna Gallers
 Toby Garfinkel  
 Vivian Gelber  
 Ezriel Gelbfish  
-Ezriel Geller  
+Avrum Geller, z"l  
 Abe Gershowitz, z"l  
 Gert Gershowitz, z"l  
 Debbie Gildenson  
@@ -85,11 +85,12 @@ Rachel Gordon
 Susan Gordon  
 Pearl Gluck  
 Sophie Gluck  
+Pauline Graiver, z"l  
 Pearl Graiver, z"l  
 Seymour Graiver, z"l  
 Rebecca Green   
 Jeanette Greenwald, z"l  
-Jack Grossman  
+Jack Grossman, z"l  
 David Grotell  
 Marilyn Gurtman-Oppenheimer  
 Alysa Haas  
@@ -181,12 +182,12 @@ Amanda (Miryem-Khaye) Seigel
 Cind Senensieb  
 David Shapiro  
 Gedalye Shapiro  
-Ruth Shapiro  
+Ruth Shapiro, z"l  
 Yelena Shmulenson  
 Ephraim Shoshani  
 Adina Shoulson  
 Mike Singer  
-Ruth Singer  
+Ruth Singer, z"l  
 Vera Sokolow  
 Madeline Solomon  
 Raquel Solomon  
@@ -195,8 +196,8 @@ Saul Spangenberg
 Judith Steinhart  
 Robert Strickstein  
 Jill Tallmer  
-Nancy Tepper  
 Kyler Taustin  
+Nancy Tepper  
 Noah Tucker  
 Emily Sarah Unger  
 Diana Varenik  
@@ -205,7 +206,7 @@ Jeanne Voisin
 Mordecai Walfish  
 Tobaron Waxman  
 Sylvia Weinberger  
-Shirley Weiner  
+Shirley Weiner, z"l  
 Bina Weinreich, z"l  
 Dov Weinstock  
 Janice Weintraub  
@@ -221,7 +222,7 @@ Jennifer Young
 Melanie Yukov  
 Michelle Zalph  
 Rachel Zerin  
-Sam (Shmuel) Zerin  
+Samantha Zerin  
 Yael Zickel  
 Mimi Zucker  
 Mark Zuckerman  
