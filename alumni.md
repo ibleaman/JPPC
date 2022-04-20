@@ -7,6 +7,7 @@ layout: default
 ## Former Members
 
 Jo Abrams  
+Sima Abrams  
 Max Alper  
 Marilyn Apelson  
 John Authers  
@@ -19,6 +20,7 @@ Edeet Bergman
 Dudle Bernstein, z"l  
 Shirley Bernstein  
 Arthur Biderman  
+Mary-Lynne Bird  
 Susan Birnbaum  
 Jamie Black  
 Isaac Bleaman  
@@ -34,6 +36,7 @@ Aaron Catz
 Daniel Checkman  
 Leigh Checkman  
 Alla Cheysvin  
+Shoshy Ciment  
 Ty Citerman  
 Ben Cohen  
 Evan Cohen  
@@ -51,6 +54,8 @@ Lee Dubinett
 Faith Dudley  
 Nancy Dunetz  
 Jenny (Mitnick) Eckers  
+Miriam Ehrlich  
+Avi Eisen  
 Philip Eisenberg  
 Gedaliah Ejdelman  
 Menachem (Yankl) Ejdelman  
@@ -76,6 +81,7 @@ Avrum Geller, z"l
 Abe Gershowitz, z"l  
 Gert Gershowitz, z"l  
 Debbie Gildenson  
+Larry (Leyzer) Gillig  
 Paul Glasser  
 Anna Goldberg, z"l  
 Ethan Goldberg  
@@ -89,12 +95,14 @@ Pauline Graiver, z"l
 Pearl Graiver, z"l  
 Seymour Graiver, z"l  
 Rebecca Green   
+Shoshana Greenberg  
 Jeanette Greenwald, z"l  
 Jack Grossman, z"l  
 David Grotell  
 Marilyn Gurtman-Oppenheimer  
 Alysa Haas  
 Rosalie Harman  
+Lydia Cohen Harris  
 Gina Healy  
 Ani Huebner  
 Dan Heyman  
@@ -111,6 +119,7 @@ Ruth Katz
 Stephen Geller Katz  
 Rebecca Keren  
 Elyakeem Kinstlinger  
+Sharon Kinstlinger  
 Jessica Kirzane  
 Aya Kiyohisa  
 Sharon Lee Klein  
@@ -134,11 +143,14 @@ Barry Lichtenberg
 Barbara London  
 Janet London  
 Peter Lubell  
+Stuart Malkin  
 Talia Martz-Oberlander  
 Adam Masser  
 Netalie Matalon  
+Brian Mayer  
 Lisa Rochman Mechanick  
 Cheryl Merzel  
+Solomon Miler  
 Jordana Miller  
 Libi Miransky  
 Heather Morse  
@@ -161,6 +173,7 @@ John Réal
 Johanna Reissman  
 Tina Rosenberg  
 Eve Roshevsky  
+Andy Roth  
 Moshe Rube  
 Larry Rubin  
 Yankl Salant  
