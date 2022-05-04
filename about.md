@@ -49,10 +49,6 @@ The Chorus’s 2006 CD, *Zingt! A Celebration of Yiddish Choral Music,* continue
 
 During the COVID-19 pandemic, Binyumen Schaechter took advantage of Zoom and developed the Yiddish Song Workshop & Sing-Along to keep the chorus involved in learning and singing while we couldn’t meet in person. The series has been open to Yiddish-music-lovers everywhere.  Over 1,000 people from around the world have registered for these song events.  
 
-In each series, Schaechter presents a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.  Themes we've explored so far are Yiddish Chanukah songs, Yiddish Purim songs, Yiddish Pesach songs, and songs with lyrics by one of the greatest Yiddish poets, Itzik Manger.
-
-Our next **90-minute event** will be on a **Sunday at 7:00 p.m. ET:**  
-
-**April 10, 2022** – **Yiddish Holocaust songs** - to register, click **[HERE](https://us02web.zoom.us/meeting/register/tZArfu2orzIsEtGkCQEr5Y__2WRmp4m48fu7)**  
+In each series, Schaechter presents a host of Yiddish songs on a particular theme – the lyrics and translations are displayed on the screen.  We also learn some linguistic, musical, and historical background for each song.  Themes we've explored so far are Yiddish Chanukah songs, Yiddish Purim songs, Yiddish Pesach songs, Yiddish Holocaust songs, and songs with lyrics by one of the greatest Yiddish poets, Itzik Manger.
 
 The Yiddish Song Workshop & Sing-Along series, all conducted in English, are free and open to everyone.  Videos of each session and booklets of transliterated and translated song lyrics are available as donation premiums.  Contact us for more information: [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
