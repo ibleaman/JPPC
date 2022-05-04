@@ -31,7 +31,7 @@ Moyshele, mayn fraynd ~ Oy, mame, bin ikh farlibt ~ Sheyn vi di levune ~
 Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik ~ Tsipele ~ Vaserl ~  
 Ven ikh volt geven a shnayder ~ Vos dergeystu mir di yorn? ~ Yome, Yome ~ Yugnt-himen*  
 
-* Including several world premieres! *  
+INCLUDING SEVERAL WORLD PREMIERES    
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
