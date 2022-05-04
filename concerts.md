@@ -24,11 +24,11 @@ _____
 129 West 67th Street  
 New York City**
 
-*"Afn pripetshik" ~ "Afn veg shteyt a boym," ~ "Akhtsik er in zibetsik zi" ~ "Ba mir bisti sheyn" ~   
+*"Afn pripetshik" ~ "Afn veg shteyt a boym," ~ "Akhtsik er in zibetsik zi" ~ "Ba mir bisti sheyn" ~  
 "Borekh ate" ~ "Dray tekhterlekh" ~ "Efnt dem toyer" ~ "Ikh hob dekh tsi fil lib" ~  
 "Kh'vil nisht aza khosn" ~ "Di mizinke oysgegibn" ~ "Moyshele, mayn fraynd" ~ "Oy, mame, bin ikh farlibt" ~  
 "Sheyn vi di levune" ~ "Shlof, mayn kind" ~ "Shmilik, Azrilik" ~ "Tsipele" ~ "Vaserl" ~  
-"Ven ikh volt geven a shnayder" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"* 
+"Ven ikh volt geven a shnayder" ~ "Vos dergeystu mir di yorn?" ~ "Yome, Yome" ~ "Yugnt-himen"*  
 
 Including several world premieres!  
 
