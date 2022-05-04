@@ -4,7 +4,7 @@ lang: english
 layout: center
 ---
 
-# Future Concerts
+# COMING SOON
 
 _____
 
