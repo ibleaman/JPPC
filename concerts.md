@@ -4,7 +4,7 @@ lang: english
 layout: center
 ---
 
-# *** COMING SOON ***
+# *** THIS SUNDAY ***
 
 _____
 
