@@ -48,15 +48,15 @@ layout: default
 **2002, 2005, 2006** - The JPPC is the only Jewish chorus ever to perform at the New York International Choral Festival at Alice Tully Hall (Lincoln Center).  
 **2003** - The Jewish People’s Philharmonic Chorus celebrates 80 years of preserving, creating, and sharing Yiddish song, becoming the world’s longest continually operating Jewish chorus.  
 **2005** - The JPPC is the only Yiddish chorus ever to perform at Shea Stadium for the NY Mets’ Jewish Heritage Day.  They sang our national anthem and Mark Zuckerman’s Yiddish choral arrangement *"Amerike di prekhtike"* (America the Beautiful).  
-**2006** - The JPPC releases a CD, *Zingt! A Celebration of Yiddish Choral Music* – its first recording in 39 years.
+**2006** - The JPPC releases a CD, *Zingt! A Celebration of Yiddish Choral Music* – its first recording in 39 years.  
 **2007** - The JPPC records its first live-in-concert DVD, which was then released in 2009.  
 **2007** - The JPPC is filmed and recorded for the 2009 feature film *Tickling Leo.*  
 **2007, 2010, 2011, 2013-19** - The JPPC is a featured chorus at the annual North American Jewish Choral Festival, first in Kerhonkson, NY, then in Stamford, CT.  
-**2008** - The JPPC is the only Yiddish chorus ever to perform at West Point Military Academy (NY).
+**2008** - The JPPC is the only Yiddish chorus ever to perform at West Point Military Academy (NY).  
 **2008** - The JPPC performs its annual gala spring concert for the first time at Symphony Space.  
 **2010** - The JPPC performs in Riverside Church as the only Jewish chorus in the 5th New York International Choral Festival.  
 **2011** - The JPPC becomes the first Yiddish chorus ever to perform standing entirely mixed.  
 **2013** - The JPPC performs at the Cathedral of St. John the Divine (NY), the 4th largest church in the world, commemorating 70 years since the Warsaw Ghetto Uprising.  
-**2014** - The JPPC posts its first videos on YouTube. 
+**2014** - The JPPC posts its first videos on YouTube.  
 **2016** - The JPPC performs its annual gala spring concert for the first time at Merkin Concert Hall.  
 **2021** - The JPPC changes its name to The Yiddish Philharmonic Chorus.  
