@@ -38,7 +38,7 @@ INCLUDING SEVERAL WORLD PREMIERES
 
 **CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies/) TO ORDER**    
 
-for our live audience:  a 48-page keepsake journal with lyrics and translations, ads placed by our fans, and acknowledgement of generous gifts from our supporters  
+for our live audience:  a 72-page keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, acknowledgement of generous gifts from our supporters, and a section of historical photos of the chorus  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
