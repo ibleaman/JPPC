@@ -18,7 +18,7 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*  
 *live supertitles and print*
 
-**Sunday, SEPTEMBER 18, 2022, 3:00 p.m.**
+**Sunday, September 18, 2022, 3:00 p.m.**
 
 **Merkin Hall at Kaufman Music Center  
 129 West 67th Street  
@@ -36,7 +36,7 @@ INCLUDING SEVERAL WORLD PREMIERES
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
 
-**CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies/) TO ORDER**    
+**CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies/) TO READ MORE ABOUT THE CONCERT**    
 
 for our live audience:  a 72-page keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, acknowledgement of generous gifts from our supporters, and a section of historical photos of the chorus  
 
