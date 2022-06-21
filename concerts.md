@@ -4,13 +4,13 @@ lang: english
 layout: center
 ---
 
-# *** THIS SUNDAY ***
+# *** THIS SEPTEMBER ***
 
 _____
 
 *********
 
-### OUR 100TH ANNIVERSARY CONCERT!
+### ENCORE PERFORMANCE OF OUR 100TH ANNIVERSARY CONCERT!
 ### &nbsp;
 ### From Babies to Bubbies:
 ### A Lifetime in Yiddish Song
@@ -18,7 +18,7 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*  
 *live supertitles and print*
 
-**Sunday, June 12, 2022, 1:00 p.m.**
+**Sunday, SEPTEMBER 18, 2022, 3:00 p.m.**
 
 **Merkin Hall at Kaufman Music Center  
 129 West 67th Street  
