@@ -34,7 +34,7 @@ Ven ikh volt geven a shnayder ~ Vos dergeystu mir di yorn? ~ Yome, Yome ~ Yugnt-
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
 
-**CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies1/) TO READ MORE ABOUT THE CONCERT AND TO ORDER TICKETS**    
+**CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies) TO READ MORE ABOUT THE CONCERT AND TO ORDER TICKETS**    
 
 for our live audience:  a 72-page keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, acknowledgement of generous gifts from our supporters, and a section of historical photos of the chorus  
 
