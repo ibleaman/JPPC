@@ -6,6 +6,9 @@ layout: default
 
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
+**"From Babies to Bubbies: A Lifetime in Yiddish Song"**    
+	Merkin Concert Hall, New York, NY, June 2022
+
 **"Yiddish Flavors of Love: A Musical Celebration"**  
 	Shelter Rock Jewish Center, Roslyn, NY, November 2019  
 	Merkin Concert Hall, New York, NY, September 2019  
