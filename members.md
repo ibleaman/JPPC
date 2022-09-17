@@ -17,12 +17,11 @@ Amy Erlanger
 Wendy Ganz  
 Vivian Gelber  
 Larry Goller  
-Penny Steiner Grossman  
+Penny Grossman  
 George Hauser  
 Richard Hoffman  
 Brian Kalver  
-Larry Kay  
-Marc Crawford Leavitt  
+Larry Kay   
 Leah Montesinos  
 Karen Esther Rood  
 Linda Rosengart  
