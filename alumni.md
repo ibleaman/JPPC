@@ -132,6 +132,7 @@ Leibele Kurtz, z"l
 Sarah Kutnowsky  
 Rachel Labovitch  
 Joshua Land  
+Marc Crawford Leavitt  
 Adi Lederman  
 Lori Leifer  
 Larry Lerner  
@@ -202,6 +203,7 @@ Ephraim Shoshani
 Adina Shoulson  
 Mike Singer  
 Ruth Singer, z"l  
+Tracy (Temma) Sivitz  
 Vera Sokolow  
 Madeline Solomon  
 Raquel Solomon  
@@ -224,6 +226,7 @@ Shirley Weiner, z"l
 Bina Weinreich, z"l  
 Dov Weinstock  
 Janice Weintraub  
+Anna Weisbrod  
 Barbara Weiss  
 Doris Weiss  
 Miriam Weiss  
@@ -236,7 +239,7 @@ Jennifer Young
 Melanie Yukov  
 Michelle Zalph  
 Rachel Zerin  
-Samantha Zerin  
+Samantha (Shuli) Zerin  
 Yael Zickel  
 Mimi Zucker  
 Mark Zuckerman  
