@@ -4,7 +4,7 @@ lang: english
 layout: center
 ---
 
-# *** THIS SEPTEMBER ***
+# *** THIS SUNDAY ***
 
 _____
 
