@@ -8,7 +8,7 @@ layout: default
 
 **"From Babies to Bubbies: A Lifetime in Yiddish Song"**    
 	Merkin Concert Hall, New York, NY, September 2022  
-	North American Jewish Choral Festival, Stamford, CT, July 2022 
+	North American Jewish Choral Festival, Stamford, CT, July 2022  
 	Merkin Concert Hall, New York, NY, June 2022
 
 **"Yiddish Flavors of Love: A Musical Celebration"**  
