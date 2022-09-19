@@ -7,6 +7,8 @@ layout: default
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"From Babies to Bubbies: A Lifetime in Yiddish Song"**    
+	Merkin Concert Hall, New York, NY, September 2022  
+	North American Jewish Choral Festival, Stamford, CT, July 2022 
 	Merkin Concert Hall, New York, NY, June 2022
 
 **"Yiddish Flavors of Love: A Musical Celebration"**  
@@ -119,6 +121,9 @@ _____
 
 **Museum of the City of New York**  
 	New York, NY, August 2007
+	
+**"Warshawsky & Gebirtig"**  
+	Hebrew Union College, New York, NY, June 2007	
 
 **Yugntruf's annual Yidish-vokh (Yiddish Week)**  
 	Copake, NY, August 2007, 2006
