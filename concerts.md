@@ -18,23 +18,24 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*  
 *live supertitles and print*
 
-**Sunday, June 11, 2023, 1:00 p.m.**
+**Sunday, June 11, 2023  
+1:00 p.m.**
 
 **Merkin Hall at Kaufman Music Center  
 129 West 67th Street  
 New York City**
 
 *Ba di taykhn fun Bovl ~ Dona, Dona ~ Flaterl ~ Harbstlid ~  
-Hatikvah in Yiddish ("Di hofenung") ~ In kamf ~ Der Internatsyonal ~  
+Di hofenung (Hatikvah* in Yiddish)* ~ *In kamf ~ Der Internatsyonal ~  
 Lomir leybn a gitn tug ~ Minutn fun bitokhn ~  Mir leybn mit bitokhn ~  
-Yerusholayim shel zahav in Yiddish ("Yerusholayem, shtot fun gold") ~  
-excerpts from the Yiddish musical "Shver tsu Zayn a Yid"  
-and from "Di Naye Hagode" (A Choral Tone Poem of the Warsaw Ghetto Uprising)*     
+Yerusholayem, shtot fun gold (Yerusholayim shel zahav* in Yiddish)* ~  
+excerpts from the Yiddish musical *"Shver tsu Zayn a Yid"*  
+and from *"Di Naye Hagode" – A Choral Tone Poem of the Warsaw Ghetto Uprising*     
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
 
-for our live audience:  a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, acknowledgement of generous gifts from our supporters, and a section of historical photos of the chorus  
+for our live audience: a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
