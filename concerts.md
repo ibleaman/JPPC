@@ -39,7 +39,7 @@ for our live audience: a keepsake journal with lyrics and translations,
 celebratory and commemorative ads placed by our fans,  
 and acknowledgement of generous gifts from our supporters
 
-**Tickets available in March**  
+**TICKETS AVAILABLE IN MARCH**  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
