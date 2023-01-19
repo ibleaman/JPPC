@@ -28,7 +28,7 @@ New York City**
 *Ba di taykhn fun Bovl ~ Dona, Dona ~ Flaterl ~ Harbstlid ~  
 Di Hofenung (Hatikvah* in Yiddish) ~ *In kamf ~ Der Internatsyonal ~  
 Lomir leybn a gitn tug ~ Minutn fun bitokhn ~  Mir leybn mit bitokhn ~  
-Yerusholayem, shtot fun gold (Yerusholayim shel zahav* in Yiddish) ~  
+Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
 excerpts from the Yiddish musical *Shver tsu zayn a yid*  
 and from *Di Naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*     
 
