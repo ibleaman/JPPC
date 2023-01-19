@@ -35,7 +35,9 @@ and from *Di Naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
 
-for our live audience: a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters
+for our live audience: a keepsake journal with lyrics and translations,  
+celebratory and commemorative ads placed by our fans,  
+and acknowledgement of generous gifts from our supporters
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
