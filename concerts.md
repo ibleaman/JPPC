@@ -26,11 +26,11 @@ _____
 New York City**
 
 *Ba di taykhn fun Bovl ~ Dona, Dona ~ Flaterl ~ Harbstlid ~  
-Di hofenung (Hatikvah* in Yiddish)* ~ *In kamf ~ Der Internatsyonal ~  
+Di hofenung (Hatikvah* in Yiddish) ~ *In kamf ~ Der Internatsyonal ~  
 Lomir leybn a gitn tug ~ Minutn fun bitokhn ~  Mir leybn mit bitokhn ~  
-Yerusholayem, shtot fun gold (Yerusholayim shel zahav* in Yiddish)* ~  
-excerpts from the Yiddish musical *"Shver tsu Zayn a Yid"*  
-and from *"Di Naye Hagode" – A Choral Tone Poem of the Warsaw Ghetto Uprising*     
+Yerusholayem, shtot fun gold (Yerusholayim shel zahav* in Yiddish) ~  
+excerpts from the Yiddish musical *Shver tsu Zayn a Yid*  
+and from *Di Naye Hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*     
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
