@@ -29,7 +29,7 @@ Hatikvah in Yiddish ("Di hofenung") ~ In kamf ~ Der Internatsyonal ~
 Lomir leybn a gitn tug ~ Minutn fun bitokhn ~  Mir leybn mit bitokhn ~  
 Yerusholayim shel zahav in Yiddish ("Yerusholayem, shtot fun gold") ~  
 excerpts from the Yiddish musical "Shver tsu Zayn a Yid"  
-and Di Naye Hagode (A Choral Tone Poem of the Warsaw Ghetto Uprising)*     
+and from Di Naye Hagode (A Choral Tone Poem of the Warsaw Ghetto Uprising)*     
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
