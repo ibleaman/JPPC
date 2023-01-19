@@ -10,7 +10,7 @@ _____
 
 *********
 
-### OUR 100TH ANNIVERSARY CONCERT!
+### THE CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
 ### &nbsp;
 ### Chutzpah:
 ### Yiddish Songs of Defiance
@@ -27,14 +27,12 @@ New York City**
 *Ba di taykhn fun Bovl ~ Dona, Dona ~ Flaterl ~ Harbstlid ~  
 Hatikvah in Yiddish ("Di hofenung") ~ In kamf ~ Der Internatsyonal ~  
 Lomir leybn a gitn tug ~ Minutn fun bitokhn ~  Mir leybn mit bitokhn ~  
-Vaserl ~ Yerusholayim shel zahav in Yiddish ("Yerusholayem, shtot fun gold") ~  
-excerpts from Di Naye Hagode (A Choral Tone Poem of the Warsaw Ghetto Uprising)
-and from the Yiddish musical "Shver tsu Zayn a Yid"*     
+Yerusholayim shel zahav in Yiddish ("Yerusholayem, shtot fun gold") ~  
+excerpts from the Yiddish musical "Shver tsu Zayn a Yid"  
+and Di Naye Hagode (A Choral Tone Poem of the Warsaw Ghetto Uprising)*     
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
-
-**CLICK [HERE](https://www.kaufmanmusiccenter.org/mch/event/yiddish-philharmonic-chorus-from-babies-to-bubbies1/) TO READ MORE ABOUT THE CONCERT**    
 
 for our live audience:  a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, acknowledgement of generous gifts from our supporters, and a section of historical photos of the chorus  
 
