@@ -15,6 +15,11 @@ _____
 ### Chutzpah:
 ### Yiddish Songs of Defiance
 
+Honoring our spirit over millenia  
+and two recent defiant events:  
+the Warsaw Ghetto Uprising (1943)  
+the founding of Israel (1948)  
+
 *ENGLISH TRANSLATIONS PROVIDED*  
 *live supertitles and print*
 
