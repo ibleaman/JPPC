@@ -30,10 +30,10 @@ the founding of Israel (1948)
 129 West 67th Street  
 New York City**
 
-*Ba di taykhn fun Bovl ~ Dona, Dona ~ Flaterl ~ Harbstlid ~  
-Di hofenung (Hatikvah* in Yiddish) ~ *In kamf ~ Der internatsyonal ~  
-Lomir leybn a gitn tug ~ Minutn fun bitokhn ~  Mir leybn mit bitokhn ~  
+*Ba di taykhn fun Bovl ~ Dona, Dona ~ Harbstlid ~ Di hofenung (Hatikvah* in Yiddish) ~  
+*In kamf ~ Der internatsyonal ~ Minutn fun bitokhn ~ Partizaner-himen ~  
 Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
+three songs by Beyle Schaechter-Gottesman ~  
 excerpts from the Yiddish musical *Shver tsu zayn a yid*  
 and from *Di naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*     
 
