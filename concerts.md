@@ -34,8 +34,8 @@ New York City**
 *In kamf ~ Der internatsyonal ~ Minutn fun bitokhn ~ Partizaner-himen ~  
 Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
 three songs by Beyle Schaechter-Gottesman ~  
-excerpts from the Yiddish musical *Shver tsu zayn a yid*  
-and from *Di naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*     
+selections from the Yiddish musical *Shver tsu zayn a yid* ~  
+selections from *Di naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*  
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
