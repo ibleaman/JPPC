@@ -52,4 +52,4 @@ _____
 
 # Archive
 
-[Click here](concerts_archive.html) to find information about our noteworthy past performances.
+[Click here](concerts_archive.html) to find information about past performances.
