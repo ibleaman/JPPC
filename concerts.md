@@ -21,7 +21,7 @@ the Warsaw Ghetto Uprising (1943)
 the founding of Israel (1948)  
 
 *ENGLISH TRANSLATIONS PROVIDED*  
-*live supertitles and print*
+*supertitles and print*
 
 **Sunday, June 11, 2023  
 1:00 p.m.**
