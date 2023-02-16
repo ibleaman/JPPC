@@ -30,7 +30,8 @@ the founding of Israel (1948)
 129 West 67th Street  
 New York City**
 
-*Ba di taykhn fun Bovl ~ Dona, Dona ~ Harbstlid ~ Di hofenung (Hatikvah* in Yiddish) ~  
+*Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona ~ Dzhankoye ~  
+Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~  
 *In kamf ~ Der internatsyonal ~ Minutn fun bitokhn ~ Partizaner-himen ~  
 Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
 three songs by Beyle Schaechter-Gottesman ~  
