@@ -31,7 +31,6 @@ Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~
 *Minutn fun bitokhn ~ Partizaner-himen ~  
 Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
 three songs by Beyle Schaechter-Gottesman ~  
-three choral arrangements by Mark Zuckerman ~  
 selections from the Yiddish musical *Shver tsu zayn a yid* ~  
 selections from *Di naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*  
 
@@ -41,7 +40,7 @@ Fueled by optimism, faith, and pride, the Jewish nation has prevailed, resilient
 
 This concert features four world-premiere choral arrangements and some familiar songs you'll hear in a completely different way.  Even if you don't know a word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit of Chutzpah!  Yiddish Songs of Defiance.  The event will also honor two historic events of defiance:  the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
 
-Included are three songs by Beyle Schaechter-Gottesman and three choral arrangements by Mark Zuckerman.    
+Included are three songs by Beyle Schaechter-Gottesman.  
 
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
