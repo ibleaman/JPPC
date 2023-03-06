@@ -15,7 +15,7 @@ _____
 ### Chutzpah!
 ### Yiddish Songs of Defiance
 
-honoring our spirit and survival over millenia  
+honoring our spirit and survival over millennia  
 including  
 the Warsaw Ghetto Uprising   
 and the founding of Israel   
