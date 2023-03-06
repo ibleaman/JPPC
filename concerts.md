@@ -12,7 +12,7 @@ _____
 
 ### THE CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
 ### &nbsp;
-### Chutzpah:
+### Chutzpah!
 ### Yiddish Songs of Defiance
 
 honoring our spirit over millenia  
