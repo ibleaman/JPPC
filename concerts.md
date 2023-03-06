@@ -15,10 +15,11 @@ _____
 ### Chutzpah!
 ### Yiddish Songs of Defiance
 
-honoring our spirit and survival over millennia  
-including  
-the Warsaw Ghetto Uprising   
-and the founding of Israel   
+Fueled by optimism, faith, and pride, the Jewish nation has prevailed, resilient in the face of hatred and oppression.  Hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, a liturgical setting, and even a children's song, all in some way rallying for solidarity or declaring the need for freedom.  
+
+This concert features four world-premiere choral arrangements and some familiar songs you'll hear in a completely different way.  Even if you don't know a word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit of Chutzpah:  Yiddish Songs of Defiance.  The event will also honor two recent defiant events:  the Warsaw Ghetto Uprising (1943) and the founding of Israel (1948).  
+
+Included are three songs by Beyle Schaechter-Gottesman and three choral arrangements by Mark Zuckerman.    
 
 *ENGLISH TRANSLATIONS PROVIDED*  
 *supertitles and print*
