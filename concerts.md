@@ -35,7 +35,7 @@ three choral arrangements by Mark Zuckerman ~
 selections from the Yiddish musical *Shver tsu zayn a yid* ~  
 selections from *Di naye hagode – A Choral Tone Poem of the Warsaw Ghetto Uprising*  
 
-including four world premieres  
+**including four world premieres**  
 
 Fueled by optimism, faith, and pride, the Jewish nation has prevailed, resilient in the face of hatred and oppression.  Hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, a liturgical setting, and even a children's song, all in some way rallying for solidarity or declaring the need for freedom.  
 
