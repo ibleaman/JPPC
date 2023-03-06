@@ -16,9 +16,9 @@ _____
 ### Yiddish Songs of Defiance
 
 honoring our spirit and survival over millenia  
-including 
-the Warsaw Ghetto Uprising (80 years ago) 
-and the founding of Israel (75 years ago) 
+including  
+the Warsaw Ghetto Uprising (80 years ago)  
+and the founding of Israel (75 years ago)  
 
 *ENGLISH TRANSLATIONS PROVIDED*  
 *supertitles and print*
