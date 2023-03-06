@@ -17,8 +17,8 @@ _____
 
 honoring our spirit and survival over millenia  
 including  
-the Warsaw Ghetto Uprising (80 years ago)  
-and the founding of Israel (75 years ago)  
+the Warsaw Ghetto Uprising   
+and the founding of Israel   
 
 *ENGLISH TRANSLATIONS PROVIDED*  
 *supertitles and print*
