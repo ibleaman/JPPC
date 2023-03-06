@@ -15,10 +15,10 @@ _____
 ### Chutzpah!
 ### Yiddish Songs of Defiance
 
-honoring our spirit over millenia  
-and two historic events of defiance:  
-the Warsaw Ghetto Uprising (1943)  
-the founding of Israel (1948)  
+honoring our spirit and survival over millenia  
+including 
+the Warsaw Ghetto Uprising (80 years ago) 
+and the founding of Israel (75 years ago) 
 
 *ENGLISH TRANSLATIONS PROVIDED*  
 *supertitles and print*
