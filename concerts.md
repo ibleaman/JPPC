@@ -16,7 +16,7 @@ _____
 ### Yiddish Songs of Defiance
 
 honoring our spirit over millenia  
-and two recent defiant events:  
+and two historic events of defiance:  
 the Warsaw Ghetto Uprising (1943)  
 the founding of Israel (1948)  
 
@@ -49,7 +49,7 @@ for our live audience: a keepsake journal with lyrics and translations,
 celebratory and commemorative ads placed by our fans,  
 and acknowledgement of generous gifts from our supporters
 
-**TICKETS AVAILABLE IN MARCH**  
+**[Click here]([https://www.kaufmanmusiccenter.org/mch/event/chutzpah-yiddish-songs-of-defiance/]) for tickets.
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)
 
