@@ -30,6 +30,8 @@ New York City**
 
 **[CLICK HERE](https://www.kaufmanmusiccenter.org/mch/event/chutzpah-yiddish-songs-of-defiance/) FOR TICKETS**  
 
+**PROGRAM**
+
 *Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona ~ Dzhankoye ~  
 Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~  
 *In kamf ~ Der internatsyonal (L'Internationale* in Yiddish) ~  
