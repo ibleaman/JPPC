@@ -34,6 +34,7 @@ Sabina Brukner
 Alec (Leyzer) Burko  
 Marc Caplan  
 Aaron Catz  
+Anna Chapman  
 Daniel Checkman  
 Leigh Checkman  
 Alla Cheysvin  
@@ -104,6 +105,7 @@ Marilyn Gurtman-Oppenheimer
 Alysa Haas  
 Rosalie Harman  
 Lydia Cohen Harris  
+George Hauser  
 Gina Healy  
 Ani Huebner  
 Dan Heyman  
@@ -157,6 +159,7 @@ Jordana Miller
 Libi Miransky  
 Heather Morse  
 Luisa Muhr  
+Deardre Nadel  
 David Newman  
 Marilyn Newman  
 Paul Olson  
@@ -220,6 +223,7 @@ Diana Varenik
 Arun Viswanath  
 Jeanne Voisin  
 Mordecai Walfish  
+Jaclyn Wallach  
 Tobaron Waxman  
 Sylvia Weinberger  
 Shirley Weiner, z"l  
