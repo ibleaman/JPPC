@@ -6,10 +6,14 @@ layout: default
 
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
+**"Chutzpah! Yiddish Songs of Defiance"**  
+	Park Slope Jewish Center, Brooklyn, NY, May 2023
+	Merkin Hall at Kaufman Music Center, New York, NY, June 2023  
+
 **"From Babies to Bubbies: A Lifetime in Yiddish Song"**    
-	Merkin Concert Hall, New York, NY, September 2022  
+	Merkin Hall at Kaufman Music Center, New York, NY, September 2022  
 	North American Jewish Choral Festival, Stamford, CT, July 2022  
-	Merkin Concert Hall, New York, NY, June 2022
+	Merkin Hall at Kaufman Music Center, New York, NY, June 2022
 
 **"Yiddish Flavors of Love: A Musical Celebration"**  
 	Shelter Rock Jewish Center, Roslyn, NY, November 2019  
