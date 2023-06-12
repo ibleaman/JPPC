@@ -10,7 +10,7 @@ _____
 
 *********
 
-### THE CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
+### ENCORE PERFORMANCE of THE CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
 ### &nbsp;
 ### Chutzpah!
 ### Yiddish Songs of Defiance
@@ -18,7 +18,7 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*  
 *supertitles and print*
 
-**Sunday, June 11, 2023  
+**Sunday, October 29, 2023  
 1:00 p.m.**
 
 **Merkin Hall at Kaufman Music Center  
