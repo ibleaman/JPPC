@@ -4,13 +4,13 @@ lang: english
 layout: center
 ---
 
-# *** UPCOMING PERFORMANCE ***
+# *** UPCOMING CONCERT ***
 
 _____
 
 *********
 
-### ENCORE PERFORMANCE of the CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
+### ENCORE PERFORMANCE TO BEGIN OUR SECOND HUNDRED YEARS!
 ### &nbsp;
 ### Chutzpah!
 ### Yiddish Songs of Defiance
