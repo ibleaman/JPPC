@@ -10,7 +10,7 @@ _____
 
 *********
 
-### ENCORE PERFORMANCE of THE CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
+### ENCORE PERFORMANCE of the CONCERT TO BEGIN OUR SECOND HUNDRED YEARS!
 ### &nbsp;
 ### Chutzpah!
 ### Yiddish Songs of Defiance
