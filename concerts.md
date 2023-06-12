@@ -18,8 +18,8 @@ _____
 *ENGLISH TRANSLATIONS PROVIDED*  
 *supertitles and print*
 
-**Sunday, October 29, 2023  
-1:00 p.m.**
+***Sunday, October 29, 2023  
+1:00 p.m.***
 
 **Merkin Hall at Kaufman Music Center  
 129 West 67th Street  
