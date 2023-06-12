@@ -7,8 +7,8 @@ layout: default
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"Chutzpah! Yiddish Songs of Defiance"**  
-	Park Slope Jewish Center, Brooklyn, NY, May 2023  
-	Merkin Hall at Kaufman Music Center, New York, NY, June 2023
+	Merkin Hall at Kaufman Music Center, New York, NY, June 2023  
+	Park Slope Jewish Center, Brooklyn, NY, May 2023
 
 **"From Babies to Bubbies: A Lifetime in Yiddish Song"**    
 	Merkin Hall at Kaufman Music Center, New York, NY, September 2022  
