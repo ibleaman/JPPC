@@ -10,7 +10,7 @@ _____
 
 *********
 
-### * ENCORE PERFORMANCE TO BEGIN OUR SECOND HUNDRED YEARS *  
+#### * ENCORE PERFORMANCE TO BEGIN OUR SECOND HUNDRED YEARS *  
 ### &nbsp;
 ## Chutzpah!
 ## Yiddish Songs of Defiance
