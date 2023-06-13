@@ -28,7 +28,7 @@ New York City**
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
 
-**[CLICK HERE](https://www.kaufmanmusiccenter.org/mch/event/chutzpah-yiddish-songs-of-defiance/) FOR TICKETS**  
+**TICKETS AVAILABLE SOON**  
 
 **PROGRAM**  
 *Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona ~ Dzhankoye ~  
