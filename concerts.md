@@ -28,8 +28,6 @@ New York City**
 **_admission: $50_**  
 **_groups of 10 or more: $40_**  
 
-**TICKETS AVAILABLE SOON**  
-
 **[CLICK HERE](https://www.kaufmanmusiccenter.org/mch/event/chutzpah-yiddish-songs-of-defiance2/) FOR TICKETS**  
 
 **PROGRAM**  
