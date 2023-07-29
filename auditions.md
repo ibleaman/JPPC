@@ -6,11 +6,13 @@ layout: default
 
 # Can you sing with us?
 
-If the idea of singing in Yiddish in four-part harmony appeals to you, and you can learn a vocal line by ear or read music, you're welcome to audition for the Chorus.
+Would you like to sing contemporary choral arrangements of Yiddish songs?  
 
-You don't need to know Yiddish.  Lyrics are translated into English, so that everyone can understand the songs and sing with expression. MP3 recordings are provided to help you learn the music and the correct Yiddish pronunciation.  Most of us learn the language "on the job" and sound like native speakers by concert time – at least while we're singing!
+If you can learn a vocal line by reading music or working with a recording, hold your part to sing in harmony with others, and attend Monday night rehearsals in Manhattan, we invite you to audition for NYC’s preeminent intergenerational Yiddish chorus.  
 
-The Chorus rehearses on Monday evenings from 7:00 to 9:00 p.m. in Midtown Manhattan.  The season runs from September through early June, with days off on Jewish holidays and some national holidays.  There are usually three to four additional non-Monday rehearsals for each voice section.  Dates for these sectional rehearsals are determined by consensus and usually take place between January and March.
+We sing only in Yiddish, but you don’t need to know the language. We provide on-the-job training. With the help of recordings, translations, and intense rehearsals, we all sound like native speakers by concert time – at least while we’re singing!  
+
+The Chorus rehearses on Monday evenings from 7:00 to 9:00 p.m. in Midtown Manhattan. The season runs from September through early June, with days off on Jewish holidays and some national holidays. There are usually three or four additional non-Monday rehearsals for each voice section. Dates for these sectional rehearsals are determined by consensus and usually take place between January and March.  
 
 Concert dates and locations, once confirmed, are included in our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page.
 
@@ -18,8 +20,8 @@ Concert dates and locations, once confirmed, are included in our [CONCERTS](http
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
-Auditions may include singing a song or two of your choice, repeating several series of pitches and rhythms that would be played for you, and learning a sentence or two of Yiddish text.  
+Auditions may include singing a song or two of your choice, repeating pitches and rhythms, and learning a sentence or two of Yiddish text.  
 
-We ordinarily hold auditions, by appointment only, in Midtown Manhattan in late August and during September. You may benefit from attending one of our concerts before you audition. Visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page.  
+We ordinarily hold auditions, by appointment only, in Midtown Manhattan in August and September. You may benefit from attending one of our concerts before you audition. Visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page.  
 
 For more information, contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
