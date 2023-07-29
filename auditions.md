@@ -6,7 +6,7 @@ layout: default
 
 # Can you sing with us?
 
-If you enjoy singing in harmony with others, and can learn a vocal line, read music or learn from a recording, and follow a conductor, you're welcome to audition for the Chorus.
+If the idea of singing in Yiddish in four-part harmony appeals to you, and you can learn a vocal line by ear or read music, you're welcome to audition for the Chorus.
 
 You don't need to know Yiddish.  Lyrics are translated into English, so that everyone can understand the songs and sing with expression. MP3 recordings are provided to help you learn the music and the correct Yiddish pronunciation.  Most of us learn the language "on the job" and sound like native speakers by concert time – at least while we're singing!
 
