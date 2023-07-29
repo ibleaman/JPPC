@@ -20,6 +20,6 @@ At your audition, we listen for musicianship, ability to learn pronunciation, an
 
 Auditions may include singing a song or two of your choice, repeating pitches and rhythms, and learning a sentence or two of Yiddish text.  
 
-We ordinarily hold auditions, by appointment only, in Midtown Manhattan in August and September. You may benefit from attending one of our concerts before you audition. Visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page.  
+Auditions are by appointment only in Midtown Manhattan prior to our first rehearsal in September. You may benefit from attending one of our concerts before you audition. Visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page.  
 
 For more information, contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
