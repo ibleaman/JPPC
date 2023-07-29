@@ -18,7 +18,7 @@ Concert dates and locations, once confirmed, are included in our [CONCERTS](http
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
-Auditions include singing a song or two of your choice, repeating several series of pitches and rhythms that would be played for you, and learning a sentence or two of Yiddish text.  
+Auditions may include singing a song or two of your choice, repeating several series of pitches and rhythms that would be played for you, and learning a sentence or two of Yiddish text.  
 
 We ordinarily hold auditions, by appointment only, in Midtown Manhattan in late August and during September. You may benefit from attending one of our concerts before you audition. Visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page.  
 
