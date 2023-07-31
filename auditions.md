@@ -10,7 +10,7 @@ Would you like to sing contemporary choral arrangements of Yiddish songs?
 
 If you can learn a vocal line by reading music or working with a recording, hold your part to sing in harmony with others, and attend Monday night rehearsals in Manhattan, we invite you to audition for NYC’s preeminent intergenerational Yiddish chorus.  
 
-We sing only in Yiddish, but you don’t need to know the language to be part of the Chorus. We provide on-the-job training – with the help of recordings, translations, and intense rehearsals, we all sound like native speakers by concert time, at least while we’re singing!  
+We sing only in Yiddish, but you don’t need to know the language to be part of the Chorus. We provide on-the-job training – with the help of recordings, translations, and lively, purposeful rehearsals, we all sound like native speakers by concert time, at least while we’re singing!  
 
 The Chorus rehearses on Monday evenings from 7:00 to 9:00 p.m. in Midtown Manhattan. The season runs from September through early June, with days off on Jewish holidays and some national holidays. There are several additional non-Monday rehearsals for each voice section. Dates for these sectional rehearsals are determined by consensus and usually take place between January and March.  
 
