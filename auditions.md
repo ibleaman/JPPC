@@ -8,7 +8,7 @@ layout: default
 
 Would you like to sing contemporary choral arrangements of Yiddish songs?  
 
-If you can learn a vocal line by reading music or working with a recording, hold your part to sing in harmony with others, and attend Monday night rehearsals in Manhattan, we invite you to audition for NYC’s preeminent intergenerational Yiddish chorus.  
+If you can learn a vocal line by reading music or working with a recording, hold your part to sing in harmony with others, and attend Monday night rehearsals in Manhattan, we invite you to audition for NYC’s preeminent Yiddish chorus.  
 
 We sing only in Yiddish, but you don’t need to know the language to be part of the Chorus. With the help of recordings, translations, and lively, purposeful rehearsals, we all sound like native speakers by concert time – at least while we’re singing!  
 
