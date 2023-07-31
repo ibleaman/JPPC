@@ -18,7 +18,7 @@ The Chorus rehearses on Monday evenings from 7:00 to 9:00 p.m. in Midtown Manhat
 
 At your audition, we listen for musicianship, ability to learn pronunciation, and ability to convey the meaning of a text. We also determine your vocal part (soprano, alto, tenor, or bass) and range within that part.  
 
-We'll ask you to sing a brief song or part of a song you choose, repeating pitches and rhythms, and repeating a sentence or two of Yiddish text.  
+You'll be asked to sing a brief song or part of a song you choose, repeat pitches and rhythms, and repeat a sentence or two of Yiddish text.  
 
 Auditions are by appointment only in Midtown Manhattan. We schedule appointments for two specific evenings in late August and early September – in 2023: August 29 and September 5 – but let us know if you’re unavailable on either date. When possible, please attend one of our concerts before you audition – visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page. And watch some of our YouTube videos, like [Dayenu](https://www.youtube.com/watch?v=p3R98uechsQ) and [The Partisans' Hymn](https://www.youtube.com/watch?v=sBdTnthBw2o).  
 
