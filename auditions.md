@@ -20,6 +20,6 @@ At your audition, we listen for musicianship, ability to learn pronunciation, an
 
 You'll be asked to sing a brief song or part of a song you choose, repeat pitches and rhythms, and repeat a sentence or two of Yiddish text.  
 
-Auditions are by appointment only in Midtown Manhattan. We schedule appointments for two specific evenings in late August and early September – in 2023: Tuesdays, August 29 and September 5 – but let us know if you’re unavailable on either date. When possible, please attend one of our concerts before you audition – visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page. And watch some of our YouTube videos, like [Dayenu](https://www.youtube.com/watch?v=p3R98uechsQ) and [The Partisans' Hymn](https://www.youtube.com/watch?v=sBdTnthBw2o).  
+Auditions are by appointment only in Midtown Manhattan. We schedule appointments for two specific evenings in late August and early September (in 2023: Tuesdays, August 29 and September 5) but let us know if you’re unavailable on either date. When possible, please attend one of our concerts before you audition – visit our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page. And watch some of our YouTube videos, like [Dayenu](https://www.youtube.com/watch?v=p3R98uechsQ) and [The Partisans' Hymn](https://www.youtube.com/watch?v=sBdTnthBw2o).  
 
 For more information, contact us at [info@YiddishChorus.org](mailto:info@yiddishchorus.org).
