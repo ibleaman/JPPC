@@ -28,4 +28,4 @@ Just prior to World War II, the world had around 13 million Yiddish speakers.  T
 
 More than sixty universities worldwide now offer Yiddish language classes. In New York City, several colleges offer graduate programs in Yiddish studies. The YIVO Institute for Jewish Research and the Jewish Theological Seminary offer Yiddish classes, and the Workers Circle offers classes at all levels, both in person and online.
 
-The past few decades have seen a surge of interest in Yiddish music, literature, theater, art, and the language itself.  Cultural organizations continue to thrive, including the Yiddish Book Center, the National Yiddish Theatre Folksbiene, and, of course, the Yiddish Philharmonic Chorus.
+The past few decades have seen a surge of interest in Yiddish music, literature, theater, art, and the language itself.  Cultural organizations continue to thrive, including the League for Yiddish, National Yiddish Theatre Folksbiene, Yiddish Book Center, Yugntruf Youth for Yiddish, and, of course, the Yiddish Philharmonic Chorus.
