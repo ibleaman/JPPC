@@ -12,7 +12,7 @@ If you can learn a vocal line by reading music or working with a recording, hold
 
 We sing only in Yiddish, but you don’t need to know the language to be part of the Chorus. With the help of recordings, translations, and lively, purposeful rehearsals, we all sound like native speakers by concert time – at least while we’re singing!  
 
-The Chorus rehearses on Monday evenings from 7:00 to 9:00 p.m. in Midtown Manhattan. The season runs from September through early June, with days off on Jewish holidays and some national holidays. There are several additional non-Monday rehearsals for each voice section. Dates for these sectional rehearsals are determined by consensus and usually take place between January and March.  
+The Chorus rehearses on Monday evenings from 7:00 to 9:00 p.m. in Midtown Manhattan. The season runs from September through early June, with days off on Jewish holidays and most national holidays. There are several additional non-Monday rehearsals for each voice section. Dates for these sectional rehearsals are determined by consensus and usually take place between January and March.  
 
 # Auditions
 
