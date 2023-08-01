@@ -14,7 +14,7 @@ Few of us are fluent, but we all learn together from the Yiddish vocal literatur
 
 Each season, our conductor, Binyumen Schaechter, creates brand-new choral arrangements to invigorate our growing repertoire of Yiddish choral music by renowned composers.  We've also commissioned and premiered works by Helen Medwedeff Greenberg z”l, Robert Ross, Josh Waletzky, and Mark Zuckerman.
 
-We perform each spring and fall at Merkin Concert Hall and most summers at the North American Jewish Choral Festival in Stamford, Connecticut.  We've also performed at Symphony Space, Carnegie Hall, Shea Stadium, West Point, the World Trade Center site after 9/11, and places of worship throughout the New York metropolitan area.  See our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page to find out what we're doing next and what we've done over the past decade.
+We perform each spring and fall at Merkin Concert Hall and most summers at the North American Jewish Choral Festival in Tarrytown, NY.  We've also performed at Symphony Space, Carnegie Hall, Shea Stadium, West Point, the World Trade Center site after 9/11, and places of worship throughout the New York metropolitan area.  See our [CONCERTS](https://www.yiddishchorus.org/concerts.html) page to find out what we're doing next and what we've done over the past decade.
 
 ## Hire us!
 
