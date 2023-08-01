@@ -8,7 +8,7 @@ layout: default
 
 Welcome to the twenty-first-century Yiddish renaissance!
 
-The Yiddish Philharmonic Chorus, formerly the Jewish People's Philharmonic Chorus (JPPC), is a multigenerational forty-voice ensemble.  We're students, professionals, and robust retirees, all in love with singing and committed to promoting Yiddish language and culture through beautiful four-part harmony.
+The Yiddish Philharmonic Chorus, formerly the Jewish People's Philharmonic Chorus (JPPC), is a multigenerational thirty-five-voice ensemble.  We're students, professionals, and robust retirees, all in love with singing and committed to promoting Yiddish language and culture through beautiful four-part harmony.
 
 Few of us are fluent, but we all learn together from the Yiddish vocal literature—traditional folk songs, settings of classic and contemporary poetry, labor anthems, theater works, holiday standards, and modern pieces in translation.   
 
