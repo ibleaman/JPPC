@@ -12,7 +12,6 @@ Nancy Braman
 Lynne Cassouto    
 BethAnn Cohen  
 Brian Conley  
-Cynthia Ehrenkrantz  
 Alisa Eilenberg  
 Matthew Eilenberg  
 Amy Erlanger  
@@ -22,6 +21,7 @@ Penny Grossman
 Richard Hoffman  
 Brian Kalver  
 Larry Kay  
+Marc Crawford Leavitt  
 Ariana Lewkowitz-Shpuntoff  
 Leah Montesinos  
 Karen Esther Rood  
@@ -31,11 +31,11 @@ Gitl Schaechter-Viswanath
 Janet Scharf  
 Paulette Schneider  
 Dovid Simon  
+Tracy Sivitz  
 Gella Solomon-Puertas  
 Scott Soloway  
 Sarah Spangenberg  
-Rina Rinkewich Spielberg  
-Shelly Wakefield  
+Rina Rinkewich Spielberg   
 Lori Weisenberg-Catalano  
 Robert Winograd  
 Lori-Ann "LA" Wynter  
