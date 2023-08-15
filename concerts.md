@@ -42,7 +42,7 @@ selections from *Di naye hagode – A choral tone poem of the Warsaw Ghetto Upri
 
 Fueled by optimism, faith, and pride, the Jewish nation has prevailed, resilient in the face of hatred and oppression.  Hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, a liturgical setting, and even a children's song, all in some way rallying for solidarity or declaring the need for freedom.  
 
-This concert features four world-premiere choral arrangements and some familiar songs you'll hear in a completely different way. Even if you don't know a 
+This concert features four brand-new choral arrangements and some familiar songs you'll hear in a completely different way. Even if you don't know a 
 word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit.
 The concert will also honor two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
 
