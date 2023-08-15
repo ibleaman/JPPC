@@ -44,7 +44,7 @@ Fueled by optimism, faith, and pride, the Jewish nation has prevailed, resilient
 
 This concert features four brand-new choral arrangements and some familiar songs you'll hear in a completely different way. Even if you don't know a 
 word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit.
-The concert will also honor two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
+The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
 
 Our live audience will receive a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters.  
 
