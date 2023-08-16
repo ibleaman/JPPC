@@ -74,6 +74,8 @@ Roslyn, New York**
 
 **_admission: free_**  
 
+*********
+
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)  
 
 _____
