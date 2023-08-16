@@ -7,7 +7,7 @@ layout: default
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"Chutzpah! Yiddish Songs of Defiance"**  
-	North American Jewish Choral Festival, Stamford, CT, July 2022  
+	North American Jewish Choral Festival, Tarrytown, NY, July 2023  
 	Merkin Hall at Kaufman Music Center, New York, NY, June 2023  
 	Park Slope Jewish Center, Brooklyn, NY, May 2023
 
