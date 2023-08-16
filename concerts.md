@@ -4,7 +4,7 @@ lang: english
 layout: center
 ---
 
-# *** UPCOMING CONCERT ***
+# *** UPCOMING CONCERTS ***
 
 _____
 
@@ -46,7 +46,33 @@ This concert features four brand-new choral arrangements and some familiar songs
 word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit.
 The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
 
-Our live audience will receive a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters.  
+Our live audience will receive a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters. 
+
+*********
+
+### * BENEFIT CONCERT FOR THE RESETTLEMENT OF UKRAINIAN REFUGEES *  
+
+### Sunday, November 5, 2023  
+### 2:00 p.m.
+
+**Beth Am Shalom Synagogue  
+295 Soundview Ave  
+White Plains, New York**
+
+**_admission: TBA_**  
+
+*********
+
+### * KRISTALLNACHT COMMEMORATIVE PERFORMANCE *  
+
+### Thursday, November 9, 2023  
+### 7:30 p.m.
+
+**Shelter Rock Jewish Center  
+272 Shelter Rock Rd  
+Roslyn, New York**
+
+**_admission: free_**  
 
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)  
 
