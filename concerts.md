@@ -50,12 +50,12 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 
 *********
 
-### * BENEFIT CONCERT FOR THE RESETTLEMENT OF UKRAINIAN REFUGEES *  
+### * BENEFIT CONCERT FOR THE RESETTLEMENT OF REFUGEES *  
 
 ### Sunday, November 5, 2023  
 ### 2:00 p.m.
 
-**Beth Am Shalom Synagogue  
+**Bet Am Shalom Synagogue  
 295 Soundview Ave  
 White Plains, New York**
 
