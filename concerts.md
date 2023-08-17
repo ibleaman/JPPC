@@ -50,7 +50,7 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 
 *********
 
-### * BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF REFUGEES *  
+### * BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF AFGHAN AND UKRAINIAN REFUGEES *  
 
 ### Sunday, November 5, 2023  
 ### 2:00 p.m.
