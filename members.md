@@ -6,6 +6,7 @@ layout: default
 
 # Current Members
 
+Michael Andrews  
 Marjory Appel  
 Nan Bases  
 Nancy Braman  
@@ -21,15 +22,19 @@ Penny Grossman
 Richard Hoffman  
 Brian Kalver  
 Larry Kay  
+Goldie Lazar  
 Marc Crawford Leavitt  
 Ariana Lewkowitz-Shpuntoff  
 Leah Montesinos  
+Ryan Muller-Neger  
+Zisl Piazza  
 Karen Esther Rood  
 Linda Rosengart  
 Sara Ruderman  
 Gitl Schaechter-Viswanath  
 Janet Scharf  
 Paulette Schneider  
+Rachel Schreiber  
 Dovid Simon  
 Tracy Sivitz  
 Gella Solomon-Puertas  
