@@ -72,7 +72,7 @@ White Plains, New York**
 272 Shelter Rock Rd  
 Roslyn, New York**
 
-**_admission: free; donations welcome_**  
+**_admission free;  donations welcome_**  
 
 *********
 
