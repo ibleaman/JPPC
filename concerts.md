@@ -50,7 +50,7 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 
 *********
 
-### * BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF AFGHAN AND UKRAINIAN REFUGEES *  
+### * YIDDISH SONGS OF DEFIANCE – BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF AFGHAN AND UKRAINIAN REFUGEES *  
 
 ### Sunday, November 5, 2023  
 ### 2:00 p.m.
@@ -59,14 +59,14 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 295 Soundview Ave  
 White Plains, New York**
 
-**_admission: TBA_**  
+**_admission: $25 in advance, $30 at the door_**  
 
 *********
 
 ### * KRISTALLNACHT COMMEMORATIVE PERFORMANCE *  
 
 ### Thursday evening, November 9, 2023  
-### time: TBA
+### time: 8:00 PM
 
 **Shelter Rock Jewish Center  
 272 Shelter Rock Rd  
