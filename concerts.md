@@ -66,7 +66,7 @@ White Plains, New York**
 ### * KRISTALLNACHT COMMEMORATIVE PERFORMANCE *  
 
 ### Thursday evening, November 9, 2023  
-### 8:00 PM  
+### 8:00 p.m.  
 
 **Shelter Rock Jewish Center  
 272 Shelter Rock Rd  
