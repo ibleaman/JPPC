@@ -50,19 +50,6 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 
 *********
 
-### * YIDDISH SONGS OF DEFIANCE – BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF AFGHAN AND UKRAINIAN REFUGEES *  
-
-### Sunday, November 5, 2023  
-### 2:00 p.m.
-
-**Bet Am Shalom Synagogue  
-295 Soundview Ave  
-White Plains, New York**
-
-**_admission: $25 in advance, $30 at the door_**  
-
-*********
-
 ### * KRISTALLNACHT COMMEMORATIVE PERFORMANCE *  
 
 ### Thursday evening, November 9, 2023  
