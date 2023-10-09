@@ -61,8 +61,8 @@ Roslyn, New York**
 
 **_admission free;  donations welcome_**  
 
-For more information, contact
-Hazzan Larry Goller
+For more information, contact  
+Hazzan Larry Goller  
 (516) 741-4305, x22  
 
 *********
