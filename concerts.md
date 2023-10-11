@@ -42,9 +42,7 @@ selections from *Di naye hagode – A choral tone poem of the Warsaw Ghetto Upri
 
 The Jewish people are now facing the worst violence since the Holocaust. Throughout history, we have repeatedly responded to hatred with optimism and defiance. Come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, a liturgical setting, and even a children's song, all in some way rallying for solidarity or declaring the need for freedom.  
 
-This concert features four new choral arrangements and some familiar songs you'll hear in a completely different way. 
-Even if you don't know a word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit.
-The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
+This concert features four new choral arrangements and some familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit. The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
 
 Our live audience will receive a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters. 
 
