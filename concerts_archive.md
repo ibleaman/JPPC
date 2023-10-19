@@ -68,7 +68,7 @@ layout: default
 
 _____
 
-*CONFERENCES, FESTIVALS, AND LOCAL EVENTS*
+*CONFERENCES, FESTIVALS, MEMORIALS, AND LOCAL EVENTS*
 
 **Honoring, Remembering and Celebrating Josephine Abrams**  
 	Riverside Memorial Chapel, New York, NY, September 2023
