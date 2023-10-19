@@ -70,6 +70,9 @@ _____
 
 *CONFERENCES, FESTIVALS, AND LOCAL EVENTS*
 
+**Honoring, Remembering and Celebrating Josephine Abrams**  
+	Riverside Memorial Chapel, New York, NY, September 2023
+
 **"Second Generation (2GNYC) Memorial Program"**  
 	Museum of Jewish Heritage, New York, NY, September 2019
 
