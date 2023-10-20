@@ -65,6 +65,19 @@ Hazzan Larry Goller:
 
 *********
 
+### * YIDDISH SONGS OF DEFIANCE – BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF AFGHAN AND UKRAINIAN REFUGEES *  
+
+### Sunday, December 10, 2023  
+### 1:15 p.m.
+
+**Bet Am Shalom Synagogue  
+295 Soundview Ave  
+White Plains, New York**
+
+**_admission: $25 in advance, $30 at the door_**  
+
+*********
+
 [info@YiddishChorus.org](mailto:info@yiddishchorus.org)  
 
 _____
