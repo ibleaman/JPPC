@@ -48,7 +48,7 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 
 *********
 
-### * KRISTALLNACHT COMMEMORATIVE PERFORMANCE *  
+### * KRISTALLNACHT COMMEMORATION *  
 
 ### Thursday evening, November 9, 2023  
 ### 7:30 p.m.  
@@ -69,7 +69,7 @@ Hazzan Larry Goller:
 ### * YIDDISH SONGS OF DEFIANCE – BENEFIT PERFORMANCE FOR THE RESETTLEMENT OF AFGHAN AND UKRAINIAN REFUGEES *  
 
 ### Sunday, December 10, 2023  
-### 1:15 p.m.
+### 1:15 p.m. - 2:30 p.m.
 
 **Bet Am Shalom Synagogue  
 295 Soundview Ave  
