@@ -51,7 +51,8 @@ Our live audience will receive a keepsake journal with lyrics and translations, 
 ### * KRISTALLNACHT COMMEMORATIVE PERFORMANCE *  
 
 ### Thursday evening, November 9, 2023  
-### 8:00 p.m.  
+### 7:30 p.m.  
+Evening service followed by a Chorus performance  
 
 **Shelter Rock Jewish Center  
 272 Shelter Rock Rd  
