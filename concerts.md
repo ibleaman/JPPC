@@ -18,7 +18,7 @@ These concerts feature brand-new choral arrangements and familiar songs you'll h
 
 **PROGRAM**  
 *Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona* ~  
-*Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~  
+*Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung* (*Hatikvah* in Yiddish) ~  
 *In kamf ~ Minutn fun bitokhn ~ Partizaner-himen* ~  
 *Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
 songs by Beyle Schaechter-Gottesman ~  
