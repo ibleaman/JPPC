@@ -10,41 +10,19 @@ _____
 
 *********
 
-### * ENCORE PERFORMANCE *  
-### &nbsp;
-## Chutzpah!
-## Yiddish Songs of Defiance
+The Jewish people, in October 2023, faced the worst violence since the Holocaust. Throughout history, we have responded to hatred with optimism and defiance. In these two upcoming concerts, come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, and a liturgical setting, all in some way rallying for solidarity or declaring the need for freedom.  
 
 *ENGLISH TRANSLATIONS PROVIDED*  
-*supertitles and print*
 
-### Sunday, October 29, 2023  
-### 1:00 p.m.
-
-**Merkin Hall at Kaufman Music Center  
-129 West 67th Street  
-New York City**
-
-**_admission: $50_**  
-**_groups of 10 or more: $40_**  
-
-**[CLICK HERE](https://www.kaufmanmusiccenter.org/mch/event/chutzpah-yiddish-songs-of-defiance2/) FOR TICKETS**  
+These concerts feature brand-new choral arrangements and familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of the state of Israel (75 years ago).  
 
 **PROGRAM**  
-*Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona ~ Dzhankoye ~  
+*Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona* ~ 
 Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~  
-*In kamf ~ Der internatsyonal (L'Internationale* in Yiddish) ~  
-*Minutn fun bitokhn ~ Partizaner-himen ~  
+*In kamf ~ Minutn fun bitokhn ~ Partizaner-himen ~  
 Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
-three songs by Beyle Schaechter-Gottesman ~  
-selections from the Yiddish musical *Shver tsu zayn a yid* ~  
-selections from *Di naye hagode – A choral tone poem of the Warsaw Ghetto Uprising*  
-
-The Jewish people are now facing the worst violence since the Holocaust. Throughout history, we have repeatedly responded to hatred with optimism and defiance. Come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, a liturgical setting, and even a children's song, all in some way rallying for solidarity or declaring the need for freedom.  
-
-This concert features four brand-new choral arrangements and some familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros, English supertitles, and a keepsake booklet with full lyric translations will keep you fully engaged and in the spirit. The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of Israel (75 years ago).  
-
-Our live audience will receive a keepsake journal with lyrics and translations, celebratory and commemorative ads placed by our fans, and acknowledgement of generous gifts from our supporters. 
+songs by Beyle Schaechter-Gottesman ~  
+selections from the Yiddish musical *Shver tsu zayn a yid*  
 
 *********
 
