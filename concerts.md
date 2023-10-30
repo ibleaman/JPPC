@@ -17,10 +17,10 @@ The Jewish people, in October 2023, faced the worst violence since the Holocaust
 These concerts feature brand-new choral arrangements and familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of the state of Israel (75 years ago).  
 
 **PROGRAM**  
-*Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona* ~ 
-Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~  
-*In kamf ~ Minutn fun bitokhn ~ Partizaner-himen ~  
-Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
+*Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~ *Dona, Dona* ~  
+*Harbstlid ~ Hey, hey, daloy politsey ~ Di hofenung (Hatikvah* in Yiddish) ~  
+*In kamf ~ Minutn fun bitokhn ~ Partizaner-himen* ~  
+*Yerusholayem, shtot fun gold (Yerushalayim shel zahav* in Yiddish) ~  
 songs by Beyle Schaechter-Gottesman ~  
 selections from the Yiddish musical *Shver tsu zayn a yid*  
 
