@@ -46,7 +46,7 @@ Hazzan Larry Goller:
 
 ### * CHUTZPAH! YIDDISH SONGS OF DEFIANCE *  
 
-Concert to raise funds for the Westchester Resettlement Coalition, 
+Concert to raise funds for the Westchester Resettlement Coalition,  
 a project of six local Synagogues 
 supporting resettlement of refugees in Westchester County.  
 
@@ -60,7 +60,7 @@ White Plains, New York**
 **_admission: $25 in advance, $30 at the door_  
 **[CLICK HERE](https://betamshalom.org/yiddishchorus/) FOR TICKETS**  
 
-For more information, contact  
+For more information, contact:  
 Bet Am Shalom office  
 [betamshalom@betamshalom.org](mailto:betamshalom@betamshalom.org)  
 (914) 946-8851  
