@@ -47,7 +47,7 @@ Hazzan Larry Goller:
 ### * CHUTZPAH! YIDDISH SONGS OF DEFIANCE *  
 
 Concert to raise funds for the Westchester Resettlement Coalition,  
-a project of six local Synagogues 
+a project of six local Synagogues  
 supporting resettlement of refugees in Westchester County.  
 
 ### Sunday, December 10, 2023  
