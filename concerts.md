@@ -10,7 +10,7 @@ _____
 
 *********
 
-The Jewish people, in October 2023, faced the worst violence since the Holocaust. Throughout history, we have responded to hatred with optimism and defiance. **In this upcoming concerts**, come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, and a liturgical setting, all in some way rallying for solidarity or declaring the need for freedom.  
+The Jewish people, in October 2023, faced the worst violence since the Holocaust. Throughout history, we have responded to hatred with optimism and defiance. In this upcoming concert, come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, and a liturgical setting, all in some way rallying for solidarity or declaring the need for freedom.  
 
 **ENGLISH TRANSLATIONS PROVIDED**  
 
