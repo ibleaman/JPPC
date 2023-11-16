@@ -7,6 +7,7 @@ layout: default
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"Chutzpah! Yiddish Songs of Defiance"**  
+	Shelter Rock Jewish Center, Roslyn, NY, November 2023
 	Merkin Hall at Kaufman Music Center, New York, NY, October 2023  
 	North American Jewish Choral Festival, Tarrytown, NY, July 2023  
 	Merkin Hall at Kaufman Music Center, New York, NY, June 2023  
