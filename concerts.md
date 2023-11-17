@@ -14,7 +14,7 @@ The Jewish people, in October 2023, faced the worst violence since the Holocaust
 
 **ENGLISH TRANSLATIONS PROVIDED**  
 
-This concert is excerpts from our June and October 2023 Merkin Hall performances, named **Chutzpah!  Yiddish Songs of Defiance**.  It features brand-new choral arrangements and familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of the state of Israel (75 years ago).  
+This concert features excerpts from our June and October 2023 Merkin Hall performances, named **Chutzpah!  Yiddish Songs of Defiance**.  It features brand-new choral arrangements and familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. The concert also honors two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of the state of Israel (75 years ago).  
 
 **PROGRAM**  
 *Ba di taykhn fun Bovl* (Psalm 137 in Yiddish) ~  
