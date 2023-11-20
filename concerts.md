@@ -33,7 +33,7 @@ Bet Am Shalom office
 [betamshalom@betamshalom.org](mailto:betamshalom@betamshalom.org)  
 (914) 946-8851  
 
-The Jewish people just endured the worst violence since the Holocaust. Throughout history, we have responded to hatred with optimism and defiance. Come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, and a liturgical setting, all in some way rallying for solidarity or declaring the need for freedom.  
+The Jewish people just endured the worst violence since the Holocaust. Throughout history, we've responded to hatred with optimism and defiance. Come hear the Yiddish Philharmonic Chorus, an intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish anthems, theater songs, and a liturgical setting, all in some way rallying for solidarity or declaring the need for freedom.  
 
 This concert includes excerpts from our June and October 2023 Merkin Hall performances.  It features brand-new choral arrangements and familiar songs you'll hear in a completely different way. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. We also honor two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of the state of Israel (75 years ago).  
 
