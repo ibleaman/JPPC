@@ -36,7 +36,7 @@ The concert will conclude with a new Yiddish choral adaptation of Beethoven’s 
 *Amerike ~ Belts, mayn shteytele Belts ~ A Brivele der mamen*  
 *Di Goldene land ~ Di Grine kuzine ~ Ikh for aheym (kin Palestine)*  
 *Lekhayem ~ Leybn zol Kolombus ~ Dem Pedlers brivele*  
-*Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik*
+*Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik*  
 *Sholem Aleichem's Viglid ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vilne ~ Vu ahin zol ikh geyn? ~ Zumer ba nakht af di dekher*  
 concluding with a new Yiddish choral adaptation of Beethoven's "Ode to Joy"  
