@@ -7,6 +7,7 @@ layout: default
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
 **"Chutzpah! Yiddish Songs of Defiance"**  
+	Bet Am Shalom Synagogue, White Plains, NY, December 2023  
 	Shelter Rock Jewish Center, Roslyn, NY, November 2023  
 	Merkin Hall at Kaufman Music Center, New York, NY, October 2023  
 	North American Jewish Choral Festival, Tarrytown, NY, July 2023  
