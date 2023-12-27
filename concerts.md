@@ -33,8 +33,8 @@ This concert will feature brand-new choral arrangements and familiar songs you'l
 The concert will conclude with a new Yiddish choral adaptation of Beethoven’s “Ode to Joy” from his Ninth Symphony, to mark the 200th anniversary of the premiere of that work in 1824.    
 
 **PROGRAM**  
-*Belts, mayn shteytele Belts ~ A Brivele der mamen*  
-*Di Goldene land ~ Ikh for aheym (kin Palestine) ~ Leybn zol Kolombus*  
+*Belts, mayn shteytele Belts ~ A Brivele der mamen ~ Di Goldene land*  
+*Di Grine kuzine ~ Ikh for aheym (kin Palestine) ~ Leybn zol Kolombus*  
 *Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik*  
 *Sholem Aleichem's Viglid ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vilne ~ Vu ahin zol ikh geyn? ~ Zumer ba nakht af di dekher*  
