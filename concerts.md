@@ -26,11 +26,6 @@ TICKETS: $50
 $40 Discount tickets for groups (at least ten)  
 are available from the box office
 
-For more information, contact:  
-Bet Am Shalom office  
-[betamshalom@betamshalom.org](mailto:betamshalom@betamshalom.org)  
-(914) 946-8851  
-
 2024 marks 100 years since the infamous Immigration Act of 1924 (The Johnson-Reed Act), which severely limited the number of immigrants that could seek freedom in America, which then made it well-nigh impossible for Jews trying to escape the Holocaust to do so. Come hear the Yiddish Philharmonic Chorus, the acclaimed, intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish songs on the theme of immigration.
 
 This concert will feature brand-new choral arrangements and familiar songs you'll hear in a completely different way, as well as some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. 
