@@ -30,7 +30,7 @@ are available from the box office
 
 This concert will feature brand-new choral arrangements and familiar songs you'll hear in a completely different way, as well as some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. 
 
-The concert will conclude with a new Yiddish choral adaptation of Beethoven’s “Ode to Joy” from his Ninth Symphony, to mark the 200th anniversary of the premiere of that work in 1824.  We also honor two historic acts of defiance: the Warsaw Ghetto Uprising (80 years ago) and the founding of the state of Israel (75 years ago).   
+The concert will conclude with a new Yiddish choral adaptation of Beethoven’s “Ode to Joy” from his Ninth Symphony, to mark the 200th anniversary of the premiere of that work in 1824.    
 
 **PROGRAM**  
 *Belts, mayn shteytele Belts ~ A Brivele der mamen*  
