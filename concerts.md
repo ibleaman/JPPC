@@ -21,11 +21,13 @@ _____
 129 West 67th Street  
 New York, New York**
 
-2024 marks 100 years since the infamous Immigration Act of 1924 (The Johnson-Reed Act), which severely limited the number of immigrants that could seek freedom in America, which then made it well-nigh impossible for Jews trying to escape the Holocaust to do so. Come hear the Yiddish Philharmonic Chorus, the acclaimed, intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish songs on the theme of immigration.
+Come hear the Yiddish Philharmonic Chorus, the acclaimed, intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish songs on the theme of Jewish immigration.
 
-This concert will feature brand-new choral arrangements and familiar songs you'll hear in a completely different way, as well as some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit. 
+2024 marks a century since the infamous Immigration Act of 1924 (The Johnson-Reed Act), which severely limited the number of immigrants allowed into America. This restriction prevented many Jews from escaping the Holocaust.
 
-The concert will conclude with a new Yiddish choral adaptation of Beethoven’s “Ode to Joy” from his Ninth Symphony, to mark the 200th anniversary of the premiere of that work in 1824.    
+Our concert will feature brand-new choral arrangements and familiar songs you'll hear in a completely different way, as well as some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit.
+
+The concert will conclude with a new Yiddish choral adaptation of “Ode to Joy” from Beethoven’s Ninth Symphony, marking the 200th anniversary of the premiere of that work in 1824.   
 
 **PROGRAM**  
 *Amerike ~ Belts, mayn shteytele Belts ~ A Brivele der mamen*  
@@ -34,14 +36,10 @@ The concert will conclude with a new Yiddish choral adaptation of Beethoven’s 
 *Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik*  
 *Sholem Aleichem's Viglid ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vilne ~ Vu ahin zol ikh geyn? ~ Zumer ba nakht af di dekher*  
-and the new Yiddish choral adaptation of Beethoven's "Ode to Joy"  
+*Brider* (Ode to Joy) 
 
-TICKETS: $50  
-
-$40 Discount tickets for groups (at least ten)  
-will be available from the box office
-
-**TICKETS AVAILABLE IN MARCH**  
+**TICKETS WILL BE AVAILABLE IN MARCH**  
+$50 or $40 for groups of 10 or more  
 
 *********
 
