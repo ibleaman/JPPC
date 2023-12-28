@@ -34,7 +34,7 @@ The concert will conclude with a new Yiddish choral adaptation of Beethoven’s 
 *Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik*  
 *Sholem Aleichem's Viglid ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vilne ~ Vu ahin zol ikh geyn? ~ Zumer ba nakht af di dekher*  
-concluding with a new Yiddish choral adaptation of Beethoven's "Ode to Joy"  
+and the new Yiddish choral adaptation of Beethoven's "Ode to Joy"  
 
 TICKETS: $50  
 
