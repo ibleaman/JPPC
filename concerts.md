@@ -23,9 +23,9 @@ New York, New York**
 
 Come hear the Yiddish Philharmonic Chorus, the acclaimed, intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish songs on the theme of Jewish immigration.
 
-2024 marks a century since the infamous Immigration Act of 1924 (The Johnson-Reed Act), which severely limited the number of immigrants allowed into America. This restriction prevented many Jews from escaping the Holocaust.
+2024 marks a century since the infamous Immigration Act of 1924 (The Johnson-Reed Act) severely limited the number of immigrants allowed into America, preventing many Jews from escaping the Holocaust.
 
-Our concert will feature brand-new choral arrangements and familiar songs you'll hear in a completely different way, as well as some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit.
+Our concert will feature brand-new choral arrangements, familiar songs you'll hear in a completely different way, and some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit.
 
 The concert will conclude with a new Yiddish choral adaptation of “Ode to Joy” from Beethoven’s Ninth Symphony, marking the 200th anniversary of the premiere of that work in 1824.   
 
