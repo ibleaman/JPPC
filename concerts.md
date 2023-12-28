@@ -27,7 +27,7 @@ Come hear the Yiddish Philharmonic Chorus, the acclaimed, intergenerational ense
 
 Our concert will feature brand-new choral arrangements, familiar songs you'll hear in a completely different way, and some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit.
 
-The concert will conclude with a new Yiddish choral adaptation of “Ode to Joy” from Beethoven’s Ninth Symphony, marking the 200th anniversary of the premiere of that work in 1824.   
+We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beethoven’s Ninth Symphony, a work premiered 200 years ago, with a Yiddish translation that promotes the “melting pot” idea. 
 
 **PROGRAM**  
 *Amerike ~ Belts, mayn shteytele Belts ~ A Brivele der mamen*  
