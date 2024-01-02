@@ -32,7 +32,7 @@ We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beetho
 **PROGRAM**  
 *Amerike ~ Belts, mayn shtetele Belts ~ Brider* (Ode to Joy)  
 *A Brivele der mamen ~ Di Goldene land ~ Di Grine kuzine*  
-*Ikh for aheym (kin Palestine) ~ Lekhayem ~ Lebn zol Kolombus*  
+*Ikh for aheym (kin Palestine) ~ Lebn zol Kolombus ~ Lekhayem*  
 *Dem Pedlers brivele ~ Shlof, mayn kind, mayn treyst, mayn sheyner*  
 *Shmilik, Azrilik ~ Sholem Aleichem's viglid ~ Varshe*  
 *Vat ken yu makh, s'iz Amerike! ~ Vilne ~ Zumer ba nakht af di dekher*  
