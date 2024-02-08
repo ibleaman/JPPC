@@ -30,12 +30,13 @@ Our concert will feature brand-new choral arrangements, familiar songs you'll he
 We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beethoven’s Ninth Symphony, a work premiered 200 years ago, with a Yiddish translation that promotes the “melting pot” idea. 
 
 **PROGRAM**  
-*Amerike ~ Belts, mayn shtetele Belts ~ Brider* (Ode to Joy)  
+*Amerike ~ Belts, mayn shteytele Belts ~ Brider* (Ode to Joy)  
 *A Brivele der mamen ~ Di Goldene land ~ Di Grine kuzine*  
-*Ikh for aheym (kin Palestine) ~ Lebn zol Kolombus ~ Lekhayem*  
+*Ikh for aheym (kin Palestine) ~ Leybn zol Kolombus ~ Lekhayem*  
 *Dem Pedlers brivele ~ Shlof, mayn kind, mayn treyst, mayn sheyner*  
 *Shmilik, Azrilik ~ Sholem Aleichem's viglid ~ Varshe*  
-*Vat ken yu makh, s'iz Amerike! ~ Vilne ~ Zumer ba nakht af di dekher*  
+*Vat ken yu makh, s'iz Amerike! ~ Vi ahin zol ikh geyn? ~ Vilne*  
+*Zimer ba nakht of di dekher*  
 
 **TICKETS WILL BE AVAILABLE IN MARCH**  
 $50 or $40 for groups of 10 or more  
