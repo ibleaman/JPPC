@@ -36,7 +36,7 @@ We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beetho
 *Dem Pedlers brivele ~ Shlof, mayn kind, mayn treyst, mayn sheyner*  
 *Shmilik, Azrilik ~ Sholem Aleichem's viglid ~ Varshe*  
 *Vat ken yu makh, s'iz Amerike! ~ Vi ahin zol ikh geyn? ~ Vilne*  
-*Zimer ba nakht of di dekher*  
+*Yam-lid ~ Zimer ba nakht of di dekher*  
 
 **TICKETS WILL BE AVAILABLE IN MARCH**  
 $50 or $40 for groups of 10 or more  
