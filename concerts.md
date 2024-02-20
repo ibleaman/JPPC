@@ -32,11 +32,11 @@ We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beetho
 **PROGRAM**  
 *Amerike ~ Belts, mayn shteytele Belts ~ Brider* (Ode to Joy)  
 *A Brivele der mamen ~ Di Goldene land ~ Di Grine kuzine*  
-*Ikh for aheym (kin Palestine) ~ Leybn zol Kolombus ~ Lekhayem*  
-*Dem Pedlers brivele ~ Shlof, mayn kind, mayn treyst, mayn sheyner*  
-*Shmilik, Azrilik ~ Sholem Aleichem's viglid ~ Varshe*  
-*Vat ken yu makh, s'iz Amerike! ~ Vi ahin zol ikh geyn? ~ Vilne*  
-*Yam-lid ~ Zimer ba nakht of di dekher*  
+*Ikh for aheym (kin Palestine) ~ Lekhayem* (from Fiddler)  
+*Dem Pedlers brivele ~ Ranunkele* (from H. M. S. Pinafore)  
+*Shlof, mayn kind, mayn treyst, mayn sheyner ~ Shmilik, Azrilik*  
+*Sholem Aleichem's viglid ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
+*Vi ahin zol ikh geyn? ~ Vilne ~ Zimer ba nakht of di dekher*  
 
 **TICKETS WILL BE AVAILABLE IN MARCH**  
 $50 or $40 for groups of 10 or more  
