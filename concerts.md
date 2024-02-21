@@ -34,7 +34,7 @@ We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beetho
 *A Brivele der mamen ~ Di Goldene land ~ Di Grine kuzine*  
 *Ikh for aheym (kin Palestine) ~ Lekhayem* (from Fiddler on the Roof)  
 *Dem Pedlers brivele ~ Ranunkele* (from H. M. S. Pinafore)  
-*Shlof, mayn kind, mayn treyst, mayn sheyner* aka *Sholem Aleichem's viglid*   
+*Shlof, mayn kind, mayn treyst, mayn sheyner (Sholem Aleichem's viglid)*   
 *Shmilik, Azrilik ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vi ahin zol ikh geyn? ~ Vilne ~ Zimer ba nakht of di dekher*  
 
