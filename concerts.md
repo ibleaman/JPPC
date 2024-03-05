@@ -24,11 +24,12 @@ New York, New York**
 The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an intriguing variety of Yiddish songs on the theme of Jewish immigration.  Our concert features brand-new choral arrangements and familiar songs you'll hear in a completely different way.  Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged.  We'll end with a choral adaptation of "Ode to Joy," from Beethoven's ninth symphony, with a Yiddish translation that promotes the "melting pot" idea - a century after the Immigration Act of 1924 turned away so many Jews trying to escape the Holocaust.  
 
 **PROGRAM**  
-*Belts, mayn shteytele Belts* ~ *Beys ikh leb nokh* (from *The Rothschilds*)  
+*Belts, mayn shteytele Belts*   
+*Beys ikh leb nokh* ("In My Own Lifetime" from *The Rothschilds*)  
 *Brider* ("Ode to Joy") ~ *A Brivele der mamen ~ Di Goldene land*  
 *Di Grine kuzine ~ Ikh for aheym kin Palestine*  
-*Lekhayem* (from *Fiddler on the Roof*) ~ *Dem Pedlers brivele*  
-*Ranunkele* (from *H.M.S. Pinafore*)  
+*Lekhayem* ("To Life" from *Fiddler on the Roof*) ~ *Dem Pedlers brivele*  
+*Ranunkele* ("Little Buttercup" from *H.M.S. Pinafore*)  
 *Shlof, mayn kind, mayn treyst, mayn sheyner ("Sholem Aleichem's viglid")*  
 *Shmilik, Azrilik ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vi ahin zol ikh geyn? ~ Vilne ~ Zey kumen kin Amerike*  
