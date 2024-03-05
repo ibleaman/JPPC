@@ -33,7 +33,7 @@ We'll end with a choral adaptation of "Ode to Joy," from Beethoven's ninth symph
 *Belts, mayn shteytele Belts* ~ *Beys ikh leb nokh* (from *The Rothschilds*)  
 *Brider* ("Ode to Joy") ~ *A Brivele der mamen ~ Di Goldene land*  
 *Di Grine kuzine ~ Ikh for aheym kin Palestine*  
-*Lekhayem* (from *Fiddler on the Roof*I ) ~ *Dem Pedlers brivele*  
+*Lekhayem* (from *Fiddler on the Roof*) ~ *Dem Pedlers brivele*  
 *Ranunkele* (from *H.M.S. Pinafore*)  
 *Shlof, mayn kind, mayn treyst, mayn sheyner ("Sholem Aleichem's viglid")*  
 *Shmilik, Azrilik ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
