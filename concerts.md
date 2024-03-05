@@ -21,18 +21,18 @@ _____
 129 West 67th Street  
 New York, New York**
 
-Come hear the Yiddish Philharmonic Chorus, the acclaimed, intergenerational ensemble led by Binyumen Schaechter, perform a variety of Yiddish songs on the theme of Jewish immigration.
+The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an intriguing variety of Yiddish songs on the theme of Jewish immigration.  
 
-2024 marks a century since the infamous Immigration Act of 1924 (The Johnson-Reed Act) severely limited the number of immigrants allowed into America, preventing many Jews from escaping the Holocaust.
+Our concert features brand-new choral arrangements and familiar songs you'll hear in a completely different way.  
 
-Our concert will feature brand-new choral arrangements, familiar songs you'll hear in a completely different way, and some total surprises for everyone. Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged and in the spirit.
+Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged.   
 
-We’ll end with a new Yiddish choral adaptation of “Ode to Joy” from Beethoven’s Ninth Symphony, a work premiered 200 years ago, with a Yiddish translation that promotes the “melting pot” idea. 
+We'll end with a choral adaptation of "Ode to Joy," from Beethoven's ninth symphony, with a Yiddish translation that promotes the "melting pot" idea - a century after the Immigration Act of 1924 turned away so many Jews trying to escape the Holocaust.  
 
 **PROGRAM**  
 *Belts, mayn shteytele Belts* ~ *Beys ikh leb nokh* (from The Rothschilds)  
 *Brider* (Ode to Joy) ~ *A Brivele der mamen ~ Di Goldene land*  
-*Di Grine kuzine ~ Ikh for aheym (kin Palestine)*  
+*Di Grine kuzine ~ Ikh for aheym kin Palestine*  
 *Lekhayem* (from Fiddler on the Roof) ~ *Dem Pedlers brivele*  
 *Ranunkele* (from H. M. S. Pinafore)  
 *Shlof, mayn kind, mayn treyst, mayn sheyner (Sholem Aleichem's viglid)*  
