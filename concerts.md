@@ -35,8 +35,7 @@ The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an int
 *Vi ahin zol ikh geyn? ~ Vilne ~ Zey kumen kin Amerike*  
 *Zimer ba nakht of di dekher*  
 
-**TICKETS WILL BE AVAILABLE IN MARCH**  
-$50 or $40 for groups of 10 or more  
+**Click [HERE](https://www.kaufmanmusiccenter.org/mch/event/from-varshe-and-vilne-to-vashington-heightsa/) for tickets**   
 
 *********
 
