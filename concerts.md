@@ -35,7 +35,7 @@ The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an int
 *Vi ahin zol ikh geyn? ~ Vilne ~ Zey kumen kin Amerike*  
 *Zimer ba nakht of di dekher*  
 
-### Click [HERE](https://www.kaufmanmusiccenter.org/mch/event/from-varshe-and-vilne-to-vashington-heightsa/) for tickets**   
+### Click [HERE](https://www.kaufmanmusiccenter.org/mch/event/from-varshe-and-vilne-to-vashington-heightsa/) for tickets   
 
 *********
 
