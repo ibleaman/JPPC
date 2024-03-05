@@ -30,12 +30,12 @@ Even if you don't know a word of Yiddish, the song intros and English supertitle
 We'll end with a choral adaptation of "Ode to Joy," from Beethoven's ninth symphony, with a Yiddish translation that promotes the "melting pot" idea - a century after the Immigration Act of 1924 turned away so many Jews trying to escape the Holocaust.  
 
 **PROGRAM**  
-*Belts, mayn shteytele Belts* ~ *Beys ikh leb nokh* (from The Rothschilds)  
-*Brider* (Ode to Joy) ~ *A Brivele der mamen ~ Di Goldene land*  
+*Belts, mayn shteytele Belts* ~ *Beys ikh leb nokh* (from *The Rothschilds*)  
+*Brider* ("Ode to Joy") ~ *A Brivele der mamen ~ Di Goldene land*  
 *Di Grine kuzine ~ Ikh for aheym kin Palestine*  
-*Lekhayem* (from Fiddler on the Roof) ~ *Dem Pedlers brivele*  
-*Ranunkele* (from H. M. S. Pinafore)  
-*Shlof, mayn kind, mayn treyst, mayn sheyner (Sholem Aleichem's viglid)*  
+*Lekhayem* (from *Fiddler on the Roof*I ) ~ *Dem Pedlers brivele*  
+*Ranunkele* (from *H.M.S. Pinafore*)  
+*Shlof, mayn kind, mayn treyst, mayn sheyner ("Sholem Aleichem's viglid")*  
 *Shmilik, Azrilik ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vi ahin zol ikh geyn? ~ Vilne ~ Zey kumen kin Amerike*  
 *Zimer ba nakht of di dekher*  
