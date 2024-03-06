@@ -17,8 +17,8 @@ _____
 ### Sunday, June 16, 2024 – Father's Day
 ### 1:00 p.m.
 
-**Merkin Hall at
-Kaufman Music Center
+**Merkin Hall at  
+Kaufman Music Center  
 129 West 67th Street  
 New York, New York**
 
