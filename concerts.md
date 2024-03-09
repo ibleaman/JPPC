@@ -22,7 +22,7 @@ Kaufman Music Center
 129 West 67th Street  
 New York, New York**
 
-The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an intriguing variety of Yiddish songs on the theme of Jewish immigration.  Our concert features brand-new choral arrangements and familiar songs you'll hear in a completely different way.  Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged.  We'll end with a choral adaptation of "Ode to Joy," from Beethoven's ninth symphony, with a Yiddish translation that promotes the "melting pot" idea - a century after the Immigration Act of 1924 turned away so many Jews trying to escape the Holocaust.  
+The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an intriguing variety of Yiddish songs on the theme of Jewish immigration.  Our concert features brand-new choral arrangements and familiar songs you'll hear in a completely different way.  Even if you don't know a word of Yiddish, the song intros and English supertitles will keep you fully engaged.  We'll end with a choral adaptation of "Ode to Joy," from Beethoven's ninth symphony, with a Yiddish translation that promotes the "melting pot" idea - a century after the Immigration Act of 1924 subsequently turned away so many Jews trying to escape the Holocaust.  
 
 **PROGRAM**  
 *Belts, mayn shteytele Belts*   
