@@ -14,7 +14,7 @@ _____
 
 **ENGLISH TRANSLATIONS PROVIDED**  
 
-### Sunday, Seoptember 15, 2024
+### Sunday, September 15, 2024
 ### 3:00 p.m.
 
 **Merkin Hall at  
