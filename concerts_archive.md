@@ -6,7 +6,7 @@ layout: default
 
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
-**"From Varshe and Vilne to Vashington Heights"**
+**"From Varshe and Vilne to Vashington Heights"**  
 	Merkin Hall at Kaufman Music Center, New York, NY, June 2024  
 
 **"Chutzpah! Yiddish Songs of Defiance"**  
