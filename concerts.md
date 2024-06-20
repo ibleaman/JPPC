@@ -12,6 +12,8 @@ _____
 
 ### * FROM VARSHE AND VILNE TO VASHINGTON HEIGHTS *  
 
+**encore performance of our June 16 concert**
+
 **ENGLISH TRANSLATIONS PROVIDED**  
 
 ### Sunday, September 15, 2024
