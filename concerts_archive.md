@@ -6,6 +6,9 @@ layout: default
 
 *OUR NOTEWORTHY PAST CONCERTS [FROM 2005 on]*
 
+**"From Varshe and Vilne to Vashington Heights"**
+	Merkin Hall at Kaufman Music Center, New York, NY, June 2024  
+
 **"Chutzpah! Yiddish Songs of Defiance"**  
 	Bet Am Shalom Synagogue, White Plains, NY, December 2023  
 	Shelter Rock Jewish Center, Roslyn, NY, November 2023  
