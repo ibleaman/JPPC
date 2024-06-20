@@ -14,8 +14,8 @@ _____
 
 **ENGLISH TRANSLATIONS PROVIDED**  
 
-### Sunday, June 16, 2024 – Father's Day
-### 1:00 p.m.
+### Sunday, Seoptember 15, 2024
+### 3:00 p.m.
 
 **Merkin Hall at  
 Kaufman Music Center  
@@ -36,7 +36,7 @@ The Yiddish Philharmonic Chorus, led by Binyumen Schaechter, will perform an int
 *Shmilik, Azrilik ~ Varshe ~ Vat ken yu makh, s'iz Amerike!*  
 *Vi ahin zol ikh geyn? ~ Vilne ~ Zimer ba nakht of di dekher*  
 
-### Click [HERE](https://www.kaufmanmusiccenter.org/mch/event/from-varshe-and-vilne-to-vashington-heightsa/) for tickets   
+### Click [HERE](https://www.kaufmanmusiccenter.org/mch/event/from-varshe-and-vilne-to-vashington-heightsb/) for tickets   
 
 *********
 
